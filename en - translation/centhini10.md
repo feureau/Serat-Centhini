@@ -1,0 +1,6551 @@
+1 (Kidang Wiracapa ing Lêmbuasta ngurmati Jayèngrêsmi) Kidang Wiracapa ing Lêmbuasta ngurmati tamunipun Jayèngrêsmi, Jayèngraga tuwin Kulawirya kanthi nanggap bagor. Prawirancana ing Trênggalèkwulan dhatêng kalihan para rayi jalêr gangsal, semah dalah putranipun èstri Rara Widuri ingkang ayu endah. Jayèngraga dalah Rara Widuri sami lan kasmaranipun. Nalika Jayèngraga ambêksa Rara Widuri lumêbêt wani ing pandhapi nubruk Jayèngraga. Dados gègèr, tujunipun kasapih tening dhatêngipun Rêtna Ginubah. Kidang Wiracapa sampun siyaga anggènipun badhe ngurmati tamunipun têtiga kanthi nanggap bagor, lampahan Panji Narawangsa. Tamu-tamu sampun sami dhatêng, kalêbêt Dêmang Prawirancana ing Trênggalèkwulan, kanthi sadhèrèkipun jalêr gangsal: Mancanaputra, Wiryabancana, Wirancana, Wiranjana tuwin Mangunjana. Semahipun nganthi putranipun èstri Rara Widuri ingkang ayu endah. Para tamu katêpangakên kalihan tamu têtiga ingkang kinurmatan. Panduking liring Jayèngraga kalihan Rara Widuri sanalika sami-sami kataman asmara.
+
+# SÊRAT CÊNTHINI X
+
+600
+
+## Maskumambang  1.
+
+Mèsêm angling sira Nikèn Widaryati|marang Wirabajra|wong pira bagor kang prapti|matur inggih salawe prah||
+
+### 2.
+Gya anuduh marang ing rewangirèki|angambil busana|wastradi kang kêling-kêling|miwah sêkar konyohira||
+
+### 3.
+Oncèn-oncèn krang mêlok gambir mêlathi|pan gangsal panampan|sinungkên marang kang rayi|wus tinampan sadayanya||
+
+### 4.
+Wus ginawa sinungkên mring Nayakênthi|panampan tinampan|cinacahakên kèhnèki|wus sangkêp saramudira||Yata wau kang bakda salat nèng mêsjid|mudhun saking langgar|mangsuk ing wismanirèki|lênggah anèng pajrambahan||
+
+### 6.
+Sinaosan wedang dhadharanirèki|nèng piring lancaran|andhèr nèng ngarsa mawarni|wowohan lan lah-olahan||
+
+### 7.
+Kae Kidang Wiracapa ngancarani|mring putra rinira|won kèndêl sami binukti|pasunggatane bibinta||
+
+### 8.
+Kang liningan sami anuwun turnèki|nulya samya ngalap|sasênêngira nyanyamik|Jayèngrêsmi Jayèngraga||
+
+### 9.
+Katri lawan Ki Ragil Kulawiryèki|samya linging nala|tan mamak kabuwan iki|ala nganggure kewala||
+
+### 10.
+Kongsi kaya mangkene rakêting kardi|lir wong mantu rowa|ukur dadakan kadyèki|mendah yèn aduwe karya||
+
+### 11.
+Baya patang mene oleh ngêluwihi|pasamuwanira|barkate ambêg priyayi|sakarsanira tan cuwa||
+
+### 12.
+Kang mangkara linging driya ngawirya tri|yata ingkang prapta|sa-anak rabinirèki|Ngabèi ing Galèk-wulan||
+
+### 13.
+Wasta Kae Mas Dêmang Wirancanèki|lan sakadangira|ingiring wong magêrsari|saupacaraning dêmang||
+
+### 14.
+Pra niyaga wus pranti yèn tamu prapti|muni laladrangan|anguyu-uyu ngrarangin|agupuh Ki Wirabajra||
+
+### 15.
+Tur uninga mring raka Kyai Ngabèi|yèn kang putra prapta|Mas Dêmang enggal ngGalèk-sasi|ngling Ke Kidang Wiracapa||
+
+### 16.
+Aturana laju kewala mariki|lan rowange sapa|umatur Wirabajrèki|inggih kadange sadaya||
+
+### 17.
+Gangsal pisan putra sampeyan kang prapti|Mas Mancanapura|Singabancana lan malih|Wirancana Wiranjana||
+
+### 18.
+Mangunjana kanêm putranta Ngabèi|lah ta Wirabajra|anakmu bae si-bèi|aturana malbèng wisma||
+
+### 19.
+Tur sandika Wirabajra angaturi|mring Kae Mas Dêmang|ingkang ingacaran linggih|ngling Ke Kidang Wiracapa||
+
+### 20.
+Lah ing ngriki cêlakan sami alinggih|Mas Prawirancana|agêpah dènnya wor linggih|kanthi garwa putranira||
+
+### 601
+## Kinanthi  1.
+
+### 601
+È
+
+### 601
+stri maksih kênya ayu|sutane Wirancanèki|sajuga dinama-dama|namane Rara Widuri|ajênar suluh wadana|sêdhêng mêpêking birai||
+
+### 2.
+Asêhdêng pawakanipun|asengêh pêngajêngnèki|netrane balerah muncar|angganthêng maèmba lungit|amêmak sêsinomira|micis rimbag angrênuki||
+
+### 3.
+Wang winangwang nangkal putung|thi-athi angudhup-turi|lathine manggis-karêngat|larapan nyèla cêndhani|gêrana rungih araras|idêp tumênggèng wiyati||
+
+### 4.
+Pilingan napaking palu|linamat ing otot wilis|jangga nglung gawung alaras|siduwa gandhewa gadhing|busananira sarwèndah|barkat sutaning priyayi||
+
+### 5.
+Ingugung sakayun-kayun|sira Ni Rara Widuri|asinjang cangkring kapanjyan|kêmbên solok turun-tangis|kulambi sêmbagi seta|corak marutu sakêthi||
+
+### 6.
+Kancinge sanga sisih rus|kalpika intên mirah brit|sampir kumbaya kusta bang|agêlung sèntêg sundari|titih cêpaka lan ronnya|anunggal linggih samyèstri||
+
+### 7.
+Alon dènnira amuwus|Ke Kidang Wiracapèki|mring Kae Mas Wirancana|puniki têtamu-mami|sutane Mas Arundaya|Kae Bayi Panurtèki||
+
+### 8.
+Ngulama ginuru-guru|pradikan Wirasabèki|ing karajan Wanamarta|keh ngulama ngalap ngèlmi|maring Ki Bayi Panurta|nadyan bupati pasisir||
+
+### 9.
+Anêcêp sami (ng)guguru|mring Ki Bayi Panurtèki|niki putrane kalihnya|wasta Kae Jayèngrêsmi|kang taruna Jayèngraga|dene Ki Kulawiryèki||
+
+### 10.
+Punika wuragilipun|samya lalana nis kampir|mariki dadya ngong nadar|sawawrat dhêsêl desèki|prayoga samya rahaban|Ki Wirancana turnya ris||
+
+### 11.
+Kawula turi awanuh|
+
+-
+
+### 11.
+akên sarèhning kêpanggih|lamun sudi ananampar|mring anistha dama miskin|kang sinambrama nor-raga|mangsuli wacana manis||
+
+### 12.
+Tan sagêd mangsuli atur|rèhning bangsa dama santri|asintru tan wrin ing krama|andhèdhèpè ing asinggih|kang agung maklum andika|pangaksamanirèng kami||
+
+### 13.
+Wirancana lingira rum|kang botên-botên ingangling|sangêt kumêdah kawula|sampurna tekading kapti|kang mugi dadya jalaran|lulusa wit apapanggih||
+
+### 14.
+Samya sêsambèn anginum|wedang dhadharanirèki|jalwèstri anyanyamikan|Jèngraga tansah nglud liring|sadhengah sabên dhinahar|nyarêngi Rara Widuri||
+
+### 15.
+Yèn nginum milya anginum|sabarang (m)barêngi ngambil|sarwi liringe iriban|pagut manising pangèksi|Jayèngraga kaguguran|ring kênya Rara Widuri||
+
+### 16.
+Pyuh kalihe ing pandulu|Ni Rara rongèh alinggih|kalêsêdan krêp aliyan|kêbut saptangan ngring-aring|gêrahuyang angganira|kabajong ujungan liring||
+
+### 17.
+Adangu mangun pandulu|yata tatamu kèh prapti|pra umbul bubundhêl desa|bêkêl pandhisil patinggi|gaco gêbrag okrak-okrak|parapat manca-limèki||
+
+### 18.
+Saluwak taboning dhusun|ing Trênggalèk têpis wiring|dalah kang tan sinuruhan|akathah kang sami prapti|nênonton mring Lêmbuasta|dènnya kasukaning ratri||
+
+### 19.
+Pra tamu kapang alungguh|jèjèr pinggiring pandhapi|dhapur sapanganggenira|rupa-rupa kèh warnèki|jadhug-jadhuging wong desa|analangguk andik-andik||Tan dhèmês kidhung amringkung|sajake cara priyayi|samakta gagamanira|akêtêp pênuh ing wuri|para ri ing Lêmbuasta|ingkang manggihi pra tani||
+
+### 21.
+Kang lungguh atêpung dhêngkul|longkang piranti (ng)gènnèki|kang raka Kae Mas Kidang|Wiracapa lan têtami|ing mangkya maksih nèng wisma|dèrèng lênggah ing pandhapi||
+
+### 22.
+Kang lagya samyèca lungguh|Ke Kidang Wiracapèki|lan Kae Mas Wirancana|Jayèngrêsmi Jayèngragi|myang Ki Ragil Kulawirya|Sradênta Ripin nèng wuri||
+
+### 23.
+Mèsêm dènnira andulu|Ke Kidang Wiracapèki|pra tamu kang nèng pandhapa|wong ambagor wus miranti|busana awida sêkar|kang andhalang Nayakênthi||
+
+### 24.
+Wus atap sadayanipun|nging durung lêkas angrawit|anganti dhawuhing karsa|Ke Kidang Wiracapa ngling|Sasmitane widadatan|lah inggih ta lah dhi Ragil||
+
+### 25.
+Sami-sami wong atapuk|tan kadi tapuk pasisir|pra prigêlaning babêksan|tan kadi dhalang pasisir|ing Sidayu Surapringga|paguroning wong angrawit||
+
+### 26.
+Pantês-pantêse wong bagus|anakmas Ki Jayèngragi|dhi Ragil sun-pêthèk wignya|mor ambagor ukêl rangin|Ki Wirya gumuyu latah|alêpat kakang Ngabèi||
+
+### 27.
+Kawula pinêthèk gambuh|yêkti tan sagêd angrangin|kajawi putranta nakmas|ingkang asarwa rêspati|Jèngraga gumujêng suka|salah-gawe paman niki||
+
+### 28.
+Kula wong langkung mogèl-kul|botên nate nika-niki|sadaya gumuyu suka|sira si Rara Widuri|tansah paguting paningal|ajuwêd marang Jèngragi||
+
+### 29.
+Sinêmbadan liringipun|candhak kacundhuk ing manik|lir wêsi bang pinalu kras|sumyur muncrating pangèksi|sang anom gambirèng driya|ningêt tingalira mamrih||
+
+### 602
+## Sinom  1.
+
+### 602
+Kae Kidang Wiracapa|ing karsa wus andungkapi|alon wijiling wacana|dhi Ragil Kulawiryèki|ywa taha-tahèng galih|kewala pasajanipun|manira yun uninga|pangigêle dhi Wuragil|yèn pinarêng lan anakmas Yajèngraga||
+
+### 2.
+Supayane tiniruwa|rangine marang wong riki|paedah marang wiraga|wong abagor juru-rangin|bisa ukêl pasisir|wignya wèh wignya kang busuk|Ki Ragil myang anakmas|myarsa linge Ki Ngabèi|maksiyate tan tilar ngulamanira||
+
+### 3.
+Rampung rampinge ngagama|ngulama bangsa priyayi|tan ewuh muradi basa|anglêjarkên ing akingkin|Jèngrêsmi mèsêm mèksi|mring Jèngraga linging kalbu|ya ta lah Jayèngraga|lir bêndung wus mêmbik-mêmbik|binobol brol jêbol lajêre gumantar||
+
+### 4.
+Tyase banjir anggaladhag|mrih angalap rara kèntir|datan kêna sinayutan|gumêrjêg kudu angibing|Jèngraga Ki Wuragil|samya sasmita ing guyu|Kulawirya ris mojar|prayogi kumambang tuding|ywa riringa ing walang-ati ilangna||
+
+### 5.
+Kaparentah kang aomah|dhasar winantah tan kêlir|kapindho pangrêngkuhira|tan kuciwa nglêgawani|winêngku suta sami|memalês ing sih tinurut|Jèngraga lon wacana|matur-ing paman Ngabèi|inggih mangke kawula anglènggèr wayang||
+
+### 6.
+Kang paman Kae Mas Kidang|Wiracapa sukèng galih|sinandikan karsanira|ngling mring putra Ki Ngabèi|Wirancana aniling|punika rinta nak-bagus|winahyu ing kabisan|sakalir sarwa winasis|trange ngèlmu wruhing lair batinira||
+
+2 (Kulawirya ambêksa dados ratu ing Jênggala) Kulawirya minangkani panêdhanipun Kidang Wiracapa ambêksa dados ratu ing Jênggala, Jayèngraga dados Panji Inu Kêrtapati. Kasaru dhatêngipun Rêtna Ginubah anakipun èstri Kidang Wiracapa ingkang wiwit alit tansah ngasrama ing wana. Katêpangakên kalihan tamu têtiga, pitakèn wigatosing lampah anggènipun sami prihatos, kawangsulan sami ngupadosi linggaripun Sèh Amongraga. Rêtna Ginubah anggambarakên dêdêg-piadêgipun Sèh Amongraga dalah pandhèrèkipun santri kalih. Kadhêsêg samangke wontên ing pundi dunungipun Sèh Amongraga, wangsulanipun dèrèng kenging winêdhar jalaran sinêngkêr dening ratu ing Tunjungbang Kaca 06 – 09 602 Sinom 7.
+
+### 6.
+Punika rinta ing benjang|kadi-kadi angungkuli|anung angungkuli bapa|Kae Bayi Panurtèki|Wirancana Ngabèi|nor lungguh sarwa umatur|inggih kados kadyèka|pasang sêmu nora wingit|tyas ngulama wangun rimbaging nagara||
+
+### 8.
+Angusuma sêmunira|kawula karênan mèksi|wawrat samya ka-anyaran|lir wus pundhuh nguni-uni|Kidang Wiracapa ngling|mring Widaryati anuduh|kinèn ngambil busana|kampuh prantining aringgit|kang liningan sigra angambil busana||
+
+### 9.
+Tan adangu praptèng ngarsa|anèng panampan sumaji|sarwa kêling sadayanya|sarta sêkar burat-wangi|angling Kae Ngabèi|sumangga anakmas-bagus|ngong ngaturi busana|lan pamanta adhi Ragil|kang liningan amatur datan lênggana||
+
+### 10.
+Eca imbalan wacana|kasaru wau kang prapti|Ni Rara Rêtna Ginubah|sing pangumbaran wanadri|kagèt kang nèng pandhapi|anarka ni rara rawuh|praptanè palataran|maksih manggung nèng turanggi|prajuritan nyangking panguthik cancingan||
+
+### 11.
+Towok sinalondhok kanan|srênggalanira sasiki|kêpuh ing ngarsa winotan|sirahing sangsam kakalih|kang wuri sirah jawi|samya ranggah singatipun|praptèng tarub sih nunggang|jaran gya kang paman katri|gupuh nyandhak marang ing turangganira||
+
+### 12.
+Agêpah kang anèng wisma|rama ibu amêrpêki|ngawirya tri maksih lênggah|nolèh kewala umèksi|Rêtna Ginubah aglis|mêdhun sing turangganipun|sarwi angling ring paman|iku tampanana aglis|ala nganggur sapele ngong olèh jangan||
+
+### 13.
+Nulya kang ngiring ambêkta|gêmbunging sangsam lan jawi|anèng wurine Ni Rara|agupuh kang paman katri|samya nampèni daging|Ni Rara sal-angsalipun|Wirabajra anyandhak|turangga pinire aglis|Wirancana Wirangkara ngrumat ulam||
+
+### 14.
+Sawusira rinumatan|kang (ng)gawa mulih tan pamit|sayêktine kang anggawa|samya gadhungan wanadri|sawuse samya mulih|Rara Ginubah amuwus|lah mara sun-tatanya|mring sira iki ing wingi|ana apa dene amamajang wulan||
+
+### 15.
+Ibune alon saurnya|ya Rara wruhanirèki|ramanira kadhayohan|ngawirya katêlu saking|krajan Wanamartèki|jare putrane Ki Guru|Kae Bayi Panurta|ramanira langkung asih|mring dhadhayoh kang mêntas andon lalana||
+
+### 16.
+Ngling Rara Rêtna Ginubah|kang êndi dhayohmu sami|kang rama aris saurnya|iyèku kang lungguh katri|payo padha-a linggih|sun-tuturi wruhanamu|nulya manjing ing wisma|atata dènnira linggih|angandika Kae Kidang Wiracapa||
+
+### 17.
+Iku karo kakangira|kang siji pamanirèki|wuragile uwakira|Kae Bayi Panurtèki|kakangira Jèngrêsmi|Jayèngraga arinipun|putrane uwakira|kakang Rundaya ing nguni|apan dadi sadulurku mulaningwang||
+
+### 18.
+Tunggal guru panêcêpan|sabaya saeka-kapti|tan ana rasa rumangsa|donya ngakerat anunggil|praptèng siwi sisiwi|wong tuwa awu-ingawu|lah iya sira rara|bagyakna kakangirèki|kawlas-ayun mêntas saking andon lampah||
+
+### 19.
+Lampah pokoning sudarma|kon lêlana angulati|Sadulur Sèh Mongraga|jodhone bakyunirèki|Tambangraras makingkin|marma rakanta anglangut|angruruh kadang tuwa|saparan tan (n)tuk pawarti|mèsêm angling sang Rara Rêtna Ginubah||
+
+### 20.
+Lah kakangmas karo pisan|bageya padha basuki|kowe bageya mas Wirya|têkane kang padha mampir|anèng Lêmbuastèki|kaslamêtan ing lakumu|Ke Kidang Wiracapa|nambungi wacana aris|lah puniku rinta Ni Rara Ginubah||
+
+### 21.
+Dêksura tan bisa basa|sabên wong tan dèn-basani|rêmên yèn ngoko kewala|dèn-koko tan walang-ati|pan wus karêmanèki|kasami tan kramèng wuwus|maklumipun anakmas|sampun tina-a ing galih|saking wana rinta Ni Rara Ginugah||
+
+### 22.
+Jayèngrêsmi Jayèngraga|katri Ki Kulawiryèki|samya gumuyu nor-raga|mangsuli wacana aris|mring kang nambramèng aris|ya yayi palakramamu|kang tumêka manira|wus bangêt tarima-mami|kapêtêking jaja lumèbèr papangkyan||
+
+### 23.
+Kacadhang anèng ing asta|kacancang kulunging ati|wangsul palakramaningwang|karaharjanira yayi|Ni Rara angling aris|lah iya kakang rahayu|pra ngawirya katrinya|samya angungun ningali|marang sira Ni Rara Rêtna Ginubah||
+
+### 24.
+Tan lumrah marang wong kathah|sasolah tingkahing èstri|sikêpe lir wong wawanan|prajuritan siyang ratri|lancingan panji-panji|klambi singsêt kuthung wulung|sinukup sinap-tangan|panguthêk cinèngklèk kering|towokira tinumpang gigir srênggala||
+
+### 25.
+Ki Wuragil Kulawirya|mèsêm wuwusira aris|ya ta lah yayimas Rêtna|karêm (m)babêdhag wanadri|tan rêna nèng wismèki|kuwu jênêk nèng wana gung|sapa kang asung tadhah|mring sira ing siyang ratri|dene nora duwe bagondhal sajuga||
+
+### 26.
+Wong lanang tan mangkonoa|kang padha karêm ninitik|sagrêma-grêma naneya|mangsa kongsiya kadyèki|panganggomu nganèhi|salukup akudhung kacu|lir wong usuk-usuk ika|sun tan nyana yèn sirèstri|sadakira sarigak kaya wong lanang||
+
+### 27.
+Mèsêm sang Rara Ginubah|nauri wacana manis|hèh kalingane ya Mas Wirya|agawok marang ing kami|wruhanamu ngong iki|wus luwih muktyèng wana gung|salasih sining wana|dagingan kang dadya bukti|nadyan nyandhang kadhang walulanging kewan||
+
+### 28.
+Sajêg manira tumitah|tan wruh rasane woh dami|kinukus mung lah-olahan|mung pala kang matêng ing wit|iku kang ingong-bukti|tan yun kang sarwa kinukus|pan namung dadagingan|iku kêlawan ginêni|tarkadhangan sataun mangan sapisan||
+
+### 29.
+Baya wus bagining titah|Mas Wirya kang kaya mami|lan malih manira tanya|mring sira ingkang sayêkti|ingkang dadya rudatin|rèhira padha ngêlangut|Jèngrêsmi lon lingira|iya kawruhana yayi|anglalaya saparan ngulati kadang||
+
+### 30.
+Ipe aran Sèh Mongraga|mêntar nis kalaning ratri|ngong ruruh angayam-alas|ing sakèhing guwa ardi|tan antuk lacak warti|ing patanyan kadung-kadung|andungkap ing kayantyan|kongsi pangguh sira yayi|mèsêm angling sira Ni Rara Ginubah||
+
+### 31.
+Patute kang sira paya|dêdêge (n)dêdêling aking|panganggone sarwa seta|panakawane kêkalih|panganggo sarwa langking|rada tèngèng gulunipun|bathuk sawijinira|gumuyu ngawirya katri|Jayèngrêsmi alon dènnira ngandika||
+
+### 32.
+Dene yêkti pojarira|paran wus wruh sira yayi|Ki Wuragil Kulawirya|nambungi wacana manis|nanging gèsèh sakêdhik|nganggo tèngèng gulunipun|angling Rêtna Ginubah|
+
+ê
+
+### 32.
+mbuh yèn ancaran ciri|iya lagi ngong-duga-duga kewala||
+
+### 33.
+Jèngraga mèsêm ngandika|aja katanggungan yayi|jênêke Sèh Amongraga|saiki anèng ing ngêndi|tuduhêna saiki|paedah sira tutulung|marang wong kawlasarsa|Rêtna Ginubah ngling aris|durung kêna winêdhar (ng)gonne Mongraga||
+
+### 34.
+Sinêngkêr ratu Tunjungbang|jinurung sakarsanèki|jinurung sasêdyanira|anggigirang anèng Giri|gagaring anèng Giri|pasangarane ngalimut|maladkung ing maladan|manganti sêlor sor pati|pandungkape pangèksi nèng Ngèksiganda||
+
+### 35.
+Kadya pamupusing jala|ampyaking tampang ngingkudi|ing kuping mataning jala|si tampang tan kêna kari|karikil amandhisil|minane bubar larut byur|siji tan kêna jala|lir wong ambêdhol carang pring|saka pucuk karangkut kèh kang karangkat||
+
+### 36.
+Iku lire Sèh Mongraga|graitanên ujar-mami|iku Mas Wirya lan kakang|Jayèngrêsmi Jayèngragi|tan kêna kok-ganali|kudu linêmbut kinêmput|ngalamate ngalêmbut|arêmpit lungit awingit|pra ngawirya katri tan bisa wacana||
+
+### 37.
+Akêthul graitanira|pêgat tan ana maguti|adhêlêg Ki Kulawirya|tyasira tan andungkapi|mêne sakala dèning|pamuwusira sang Ayu|Nuripin ararasan|lan Asradênta aririh|lan (ng)gih ta lah wakane Asra-asmara||
+
+### 38.
+Bandara kula kasoran|tyase jêblog anjêbimblik|niku Ni Rara Ginubah|yèn mojar mring Ki Wuragil|basane anyêngkiwing|sakêna-kênane wuwus|Asradênta anjola|sok ngêlih jênêng arani|Asradènta ingelih Asra-asmara||
+
+3 ( Rêtna Ginubah nata tumindaking bagoran) Rêtna Ginubah nata tumindaking bagoran. Ni Widuri kadhawuhan mborèhi Jayèngraga, ronggèng Ni Gèpèt amborèhana Kulawirya. Dhalang ringgit Ki Nayakênthi. Pangulu Asradênta lan Nuripin sami dados Bancak Dhoyok, sakalangkung lucu. Jayèngrêsmi sumingkir dhatêng ing masjid. 602 Sinom 39. (
+
+### 38.
+m)Boten ilok sasêmbrangan|Nuripin (ng)galigik ririh|ngangkah punapa kang Asra|tan ala lah inggih bêcik|kang ginuyon ngegosi|malêruk tan pati rêmbug|Ki Wuragil miyarsa|dènnya guguyon Nuripin|guyunira maro sinamun wacana||
+
+### 40.
+Kapriye kono anakmas|abuntu têmên tyas-mami|linge lingira sang Rêtna|Rara Ginubah awadi|dene pating talênik|tan ngêrti sakuku-wulu|Jèngrêsmi Jayèngraga|mèsêm anauri aris|kula inggih dèrèng atampi ing driya||
+
+### 41.
+Paliringaning putranta|Ni Rara Rêtna Rinujit|kadya wuwusing supêna|cat-cutan tampining kapti|mèsêm sang Rara angling|ya wus yèn durung sumurup|larangan yèn binuka|budinên bae ing ati|angling malih Ni Rara Rêtna Ginubah||
+
+### 42.
+Lah ibu ing karsa sira|nganggo tatanggapan ringgit|wong abagor durung lêkas|samana kawêngèn thithik|bok wis kinèn awiwit|paran lalakon jinaluk|nyukup mataning bocah|wong kang kudu niningali|kang rama ngling ya bênêr tumuli lêkas||
+
+### 43.
+Ngling malih sira Ni Rara|marang ramanira aris|lah iki wastra rong nampan|sapa kang dèn-busanani|kang rama anauri|saosane kakangamu|Kae Mas Jayèngraga|lan pamanmu dhi Wuragil|sun-papêksa ambagor manawa bisa||
+
+### 44.
+Mèsêm sang Rara ngandika|lah ya sokur luwih bêcik|arahab suka pasaja|tan riringa nora rêgi|Rara ngling mring Jèngragi|apa wêtone dhêmênmu|Jayèngraga lingira|ya yayi rèhning tinuding|kinèn nglènggèr wêton Kalana yèn bisa||
+
+### 45.
+Sadhela sarat sandika|lan paman padha angrangin|angling lah ya busana-a|kang prayoga lan Mas Ragil|nulya amire ngering|Jèngraga Kulawiryèku|sawusira busana|wangsul dènnira alinggih|Ni Rêtna ngling sapa kang (m)borèhi sira||
+
+### 46.
+Nauri borèh priyangga|ah mêngko ngong anunuding|kang (m)borèhi marang sira|[---]|si Widuri sirèki|borèhana kakangamu|Jayèngraga dèn-agya|ingkang liningan awigih|sêmu isin pinêksa marang Ni Rara||
+
+### 47.
+Sarya ngling kang Wirancana|anakmu sun-kon-(m)borèhi|aywa sumêlang tyasira|Ki Wirancana Ngabèi|ngling sakarsanta yayi|manira tan wancak-kalbu|Ni Widuri agêpah|amajêng kinèn (m)burati|mring Jèngraga pagut manising paningal||
+
+### 603
+## Dhandhanggula  1.
+
+### 603
+Atandhingan limputing pangèksi|kadya gêdhah-kantha panginuman|singsal sing ngasta sanane|tiba sela rêngkulu|kumêpyuring tyas angranuhi|lir pendah ru rinurah|runah durung wanuh|manahira haruhara|ka-awêran ing kakung rang mawa kingkin|ngênani ing wardaya||
+
+### 2.
+Dadya gragapan panggarapnèki|asta darijinira Jèngraga|sinangga èpèk-èpèke|sang Rara amburat rum|panuduh sring kapênêd jênthik|juwêt sasmitèng prana|Ni Rara kumêpyur|kêtêk rêbut-dhucung muntab|angaringêt kumrangsang panas srumiwing|mêtu ngirung kumrangsang||
+
+### 3.
+Wus dènnira ambuburat wangi|Ni Widuri wangsul unggyannira|iriban sangkrip batine|nanging wus muntup-muntup|kari brênge cênthoting ati|ngrukêti Jayèngraga|tatokoning kalbu|kadya tan kêna ingampah|lir (ng)garbini mèh lair kang jabang bayi|kantun ngêntèni sangat||
+
+### 4.
+Ni Rêtna Ginubah angling malih|sapa kang amborèhi Mas Wirya|e bênêr ronggèng si Grèpèt|age mreneya thuyul|borèhana Mas Wirya aglis|gupuh kang sinung ujar|Ni Rara gya mundhut|camara marang dhadhalang|Nayakênthi ngong mundhut têkês kakalih|katur sinungkên sigra||
+
+### 5.
+Nulya ingangge mring Jayèngragi|lawan kang paman Ki Kulawirya|pinasang krang-mêlok oncèn|miwah gagombyok dhuwung|wus mangkana kang busanadi|angling Rara Ginubah|marang pamanipun|wus mara mêtua (n)jaba|mring pandhapa sing nopèng konên awiwit|lakone Narawangsa||
+
+### 6.
+Lan manira iki ayun mulih|mring asramaningsun ing wanarga|ngong wus padha apapanggoh|kang rama ris amuwus|Rara sira nora anganti|jêjêre wong topèngan|Ni Rara lingnya rum|nora kêna tinamtua|kadhang mêngko yèn dhangan ngong bali malih|pra ngawirya samyojar||
+
+### 7.
+Ing bêcike yayi aja mulih|durung tutug (ng)goningsun papanggya|ring sira tumulya mulèh|sesuk bae riningsun|mulih mring ngasramanirèki|mangsa sabên dina-a|mupung apapangguh|Ni Rara Rêtna Ginubah|muwus aris ya kakang mêngko ngong bali|ingsun mulih sadhela||
+
+### 8.
+Angling malih mring pamanirèki|hèh man Wirabajra jaraningwang|dèn-age ajokna kene|Wirabajra agupuh|anyêdhakkên turangganèki|Ni Rara nyèngklak kuda|nèng ngarêping pintu|towok pinapan nèng kanan|(n)dan umangkat srênggalanira tan kari|lulang sasak dalir bang||
+
+### 9.
+Kewala laju têngah pandhapi|mire kang jagong gawok umiyat|mring Ni Rêtna pang-Gubahe|tan taha ing pangangkuh|ing akathah ginalih usring|wus kadhanyang kasmara|bumi ing wana gung|gya Ke Kidang Wiracapa|ngancarani mring putra ri samya mijil|lênggaha nèng pandhapa||
+
+### 10.
+Wus tata dènnira alinggih|kae Rangga Kidang Wiracapa|binagyan kabèh dhayohe|lah bageya sadarum|anak putu kang padha linggih|umatur sadayanya|samya saur-manuk|barêngan gêdêr gumêrah|matur nuwun inggih-inggih ingkaringgih|mangsuli kalujêngan||
+
+### 11.
+Kae Kidang Wiracapa nuding|kinèn ngêdalakên kang sugata|Ki Wirabajra nulya ge|nuduh sinomanipun|wus miranti angladèni|suguh wedang panganan|rata sadaya wus|miwah dhaharan nèng ngarsa|linadènan parèstri saking ing wingking|sêlire Kae Rangga||
+
+### 12.
+Kae Wiracapa ngancarani|sadaya sami kinèn wantingan|nulya samya gupuh kabèh|ngalap nyamikanipun|wedang pangan samya kinêmil|Ke Kidang Wiracapa|lon dènnira muwus|wis Nayakênthi lêkasa|lalakone Narawangsa bae bêcik|jêjêr ratu Jênggala||
+
+### 13.
+Dhalang bagor sandika turnèki|nulya niyaga tukang krawitan|sêsêg ricik pangricike|umyung pangrangin arum|pra wong bagor samya miranti|rolas ingkang samêkta|samya ngrasuk tapuk|dadya kang putra kang seba|angalènggèr ing kalèngkrak samya ngrangin|minangka kang kadeyan||
+
+### 14.
+Saubêngan dènnira amiwir|anglayang trapsila ngapurancang|akapang pasewakane|sakèh wong kang andulu|
+
+è
+
+### 14.
+yêg uyêl rêbat (ng)gènnèki|linggih jegang ajêgan|jêjêl sêsêg sukup|gumêdêr rare cêngèkan|ting jalêrit rarya lit nangis kapipit|dene wèng tumpak langak||
+
+### 15.
+Kang parèstri kumpul samya èstri|anèng kampung paningrat niningal|kang nèng wisma panontone|para (m)bokmas nèng pintu|lan (m)bakajêng lan nyai-nyai|atap nèng jrambah (ng)gènnya|anênonton tapuk|mangkana kang bêbagoran|dhalang Nayakênthi ngêrêpakên gêndhing|sru kothak cinampala||
+
+### 16.
+Dènirarsa tanjak-turing ringgit|sru sabawa rêp data pitana|anênggih wau ta mangke|kocapa kang cinatur|wau sira rêkyana-patih Jênggala kang pinurwa|dasa namanipun|Ki Patih Kudanawarsa|wicaksana bangkit tan ana madhani|tadhah karsaning nata||
+
+### 17.
+Dêdêg pidêksa pamulu manis|lêpasing tyas waskitha wasistha|amawas wadyanirojèng|gabug aosing kalbu|kawistara marang ki patih|tyasing wadya sapraja|winêngku kawêngku|kaombèraning tyasira|gêng alit wus kadum jinuming pakarti|saking kêrtartanira||
+
+### 18.
+Pamudya mrih arjaning nagari|ambêg santa budi martotama|andhap tan asor kulane|luhure tan kalungsur|pringganirèng wiyat kaèksi|mudhari ing amudha|anjêjêli wuruk|nuwuki karya pirêna|rumêksèng-rat kobètingrat tan pinilih|anglar jajahan rowang||
+
+### 19.
+Ngingkut jajahaning mungsuh kèksi|kèh nungkul tanpa pinungkuling prang|sumawita ing ratune|tur bulu-bêktinipun|saking kaprawiraning patih|among para atmaja|
+
+-
+
+### 19.
+nira sang aprabu|pra rarya satus-slawe prah|datan ana rinêngat binuja-krami|sinaosan sakarsa||
+
+### 20.
+Mukti ingugung marang ki patih|patih brastha tyasira pra putra|katrapan roh parimane|mila Jênggala kukut|parangmuka tan wani sêbit|punggawa para putra|rêmpêgsabiyantu|anggêpe pan sumawita|mring kang rama Prabu Jênggala samya jrih|tan mantra-mantra putra||
+
+### 21.
+Saking dening pangrèhirèng patih|myang wadya gung alit tan suwala|malah toh ing jiwanggane|sumungkêm ambêg lampus|cadhang nadhah karyaning aji|kumurêb ing ayahan|ayahaning ratu|kacipta lalabuh lena|tan prabeda gêng alit lulute sami|rumêksa mrih prajarja||
+
+### 22.
+Saking sudibyanira ki patih|Kudanawarsa dêdêg pidêksa|abêcik katuranggane|pêthikaning pamulu|
+
+-
+
+### 22.
+nira patih Kudanawarsi|salêkêring wadana|methok sarwa patut|watake tadhah ing karya|nora ingan ing pakarti angrampungi|tan watak samudana||
+
+### 23.
+Rema mêmak-sêngsêm ing utami|tingal andik tajêm liringira|andhodong arang kêdhèpe|maya tlapukanipun|lêng-lêng kandêl puputih ngarsi|watak datan lèmèran|bêtah lèking dulu|alis mêlês ningat-sangsam|watakira apanggah sabarang kardi|mathis lathi arêta||
+
+### 24.
+Tipis ombèr pranajanirèki|watak bêtah micara kabisan|untu bêlah kawatone|watak tutuk pamuwus|nadyan duka ngenaki ati|atètèh ujar wantah|rinêngon tan sêngu|janggud mêmêt ngikis yatra|watak tuhu tan ngakèhakên upami|uwang pangluking sangkal||
+
+### 25.
+Watak apik tan-pati angêmil|tan saradan idu sisi riyak|jangga nangsam-katapane|abêcik swaranipun|pamidhangan lèsèh apingwin|watak sangkêping karya|rikat tan kasusu|sêsalang wêlar awijang|jaja mungal sumengêh wêwêg agilig|watake bèr paradhah||
+
+### 26.
+Wani kelangan ngudankên wangi|pamêthike mrih arjaning praja|pra jalma pinrih lulute|lambung lambang ngalandhung|watake mêksa solahing ngling|bokong tèpos wataknya|bêtah yèn alungguh|pupu anggangsir akakas|watak rosa jêjêg olahing pakarti|kèmpol kiyal ngêmanak||
+
+### 27.
+Watak pandak ing gawe tan srênti|dhêngkul cèkèh de kang watakira|abêcik babasahane|alêga jangkahipun|tindak tungkak cumancêp siti|watak jro panuduknya|pidêksa pamulu|sèbêtan pasagi pasang|wanda endah mardawa andarèh wèni|arêtna musthikèngrat||
+
+### 28.
+Kang nèng kanan keringe ki patih|sira Ki Tumênggung Pangancanan|Ngabèi Wirancanane|Wiramantri atêpung|Pangalasan Rangga Ngabèi|myang Arya Putranata|andhèr kapang têpung|satriya Panji ing ngarsa|Panji-sutra Sutrana Panji Kumitir|Panji Sutradiwangga||
+
+### 29.
+Panji-wulung jajare para ri|Radèn Kudapitana Pandhapa|Risikan lan Simpangane|Pambêrêg lan Pamêcut|dyan Lambangan Layaran tuwin|Jajahan Balajahan|Pamêgat Pamutung|Cawangan lawan Lautan|Radèn Kudapanurat lawan Panulis|Panonjok lan Panantang||
+
+### 30.
+Jayèng-antaka lan Jayèng-gati|Panjala myang Sandhatan Maringan|Pangoyodan Pangarite|Pamapag lan Pamêthuk|dyan Pantaka lawan Kintèki|Gadhingan lan Ingulan|Kumutuk Kumukus|Panakan miwah Panatas|Sintanu lan Sêntanan Kadhapan-rangin|Pangêrap lan Pandêngan||
+
+### 31.
+Kathah namane para putra ji|samya anganti marang apatya|dèrèng prapta sadangune|pasewakan asamun|kadya kitri angêmbang wohi|tuwin nora pradapa|saupaminipun|tan antara katingalan|king ing ngarsa arsa risang adipanji|Ino ing kasatriyan||
+
+### 32.
+Datan pati kathah ingkang ngiring|katarèng wingitira lir pendah|pradapa sinêmpal sore|angalêntrèh kadulu|tanpa paès èsmu makingkin|asongsong tan winêgar|mingkup anèng pungkur|wus tutug panjanturira|Nayakênthi nyêmpala kothak dhog muni|sru suluk gêndhing niba||
+
+### 33.
+Nulya Kae Bagus Jayèngragi|Ki Nuripin sigra pinarbotan|kinarsan dadya kêdhoke|Ki Ngabèi gumuyu|myat Nuripin suka sarya ngling|e lah ya bênêr sira|wasisan pangulu|Asradênta angregol-a|lan Nuripin nulya binusanan aglis|dinododan srombongan||
+
+### 34.
+Tan adangu wus samêkta sami|kinèn anglènggèr anunjèng raga|Ke Kidang Wiracapane|angling sumanggèng kayun|Jèngraga tar lêngganèng kapti|gya maring pakothakan|gya asru atapuk|angrakit Panji gêng branta|aririmong midêr sondhère winiwir|cindhe wilis pinrada||
+
+### 35.
+Jayèngraga kalangkung rêspati|
+
+(
+
+### 35.
+m)bêksa nêmbang Panji-among-branta|wuri kadang kadeyane|Panji-anom lan Wirun|Kalanggada lan Benggol kaki|Nuripin Asradênta|dadya Dhoyokipun|Nuripin Sadugawèlnya|sakèhing wong anênonton rêbut ngarsi|amêndêr ing Jèngraga||
+
+### 36.
+Jalu èstri anandhang pangèksi|samya rarasan ririh lan rowang|e e kuwe dhadhayohe|bilah dene abagus|sigid bisa abêksa Panji|apa dhasare dhalang|myang wong bagor tapuk|kang ngangsong-jar sinauran|jare ajar-wawasi baut angringgit|kampir ing Lêmbuasta||
+
+### 37.
+Kèh rowange rarasan nauri|sesuk yèn mulih marang ing arga|ngong cêgat nèng dalan bae|sun-jak mring wismaningsun|pan kumrêsêg nauri sami|e ah yèn kadhisikan|mêngko yèn wus ucul|sun-gondhèlane kewala|mèn aja na ingkang bisa andhisiki|rêbutan têmah tukar||
+
+### 38.
+Kang nèng wisma gya mêdal nèng kori|samya mapan ana ing paningrat|amrih tawang pandulune|Ni Widuri saya gung|rimangira mring Jayèngragi|miyarsa kang rarasan|ngoso ririh muwus|sapa wonge kang angomyang|lah ta ora wani ngrêbut wong jêlanthir|eman duwèkku dhawak||
+
+### 39.
+Tan wus ucapên kang wawan-angling|pangibingira Ki Jayèngraga|angraras ukêl malinggèh|mire byak kang andulu|dyan Apanji tunggal apatih|kapara ragi ngarsa|mung kaot sadhêngkul|dyan No ing kasatriyan|maksih rimong sondhèr pamêdharing kingkin|nising Candrakirana||
+
+### 40.
+Gya Ki Wuragil Kulawiryèki|sangkêp dhapuk rêraton Jênggala|amiwir sondhèr anglènggèr|wuri parêkanipun|angasigêg jêjêring ringgit|antara tigang gongan|laras tanjak lungguh|winalangkêrik ngadhangkrang|kinêbuting parêkan ing kanan kering|lir pendah nèng dhadhampar||
+
+### 41.
+Pan anêsêg anibani gêndhing|sinulukan pra bagor barungan|yata kang samya alinggèh|Jèngrêsmi amitêmbung|arsa ningit marang ing masjid|animpar ing pasilan|nèng susuro tajug|Ke Kidang Wiracapa gya|pan rumojong ing karsanira kang siwi|nuduh ing Wirabajra||
+
+### 42.
+Kinèn mundhut pagêlaran lêmpir|sarta sasaosan dhaharan|kinèn rukti sêdayane|Wirabajra agupuh|angrumati saliring tuding|wus ramut sadayanya|gya umatur sampun|Kae Kidang Wiracapa|alon muwus anakmas kula-aturi|animpar maring langgar||
+
+### 43.
+Jayèngrêsmi nimpar maring masjid|pra kadang tri samya atut-wuntat|praptèng langgar pinarantèn|Jayèngrêsmi lon muwus|paman katri wangsuling ngriki|kawula kajênêkan|nèng tajug pikantuk|sasambèn sunat palilah|kang paman tri nulya wangsul ing pandhapi|nuduh ingkang rumêksa||
+
+### 44.
+Wong Kauman ingkang tuwa sami|kinèn angladèni anèng langgar|wus sami apakêmite|yata ingkang anyêngkung|dhalang bagor Ki Nayakênthi|nglangak leyangan kothak|kinêprakan suwuk|jumênggung sêg asêndhonan|sinulukan pathêt nêm angrêspatèni|jêjêring rêratonan||
+
+### 45.
+Nutug pocapanirèng aringgit|Prabu Jênggala wusirèng tanya|marang Kudanawarsane|mangsa myang lamènipun|murcanira putri Kêdhiri|patih Kudanawarsa|sawarsa turipun|akire mangsa kasapta|linging nata mring putra sang Adipanji|dhuh kulup dhawuhingwang||
+
+### 46.
+Aywa mangarang ruditèng ati|mangantu-antu ngantiyèng garwa|kang murca pagulingane|wus tan kêna kinayun|sun-pikramèkakên sirèki|nis wiryaning satriya|nal brangti dyah ayu|karsaningsun marang sira|adhaupa lan rinta putrane yayi|yayi Ji ing Ngurawan||
+
+4 ( Wukir tuwin Laba, bêksa-èstri dados Panji Narawangsa) Lare jalêr Wukir tuwin Laba, putu tuwin kapenakanipun Nayakênthi bêksa- èstri dados Panji Narawangsa (malihanipun Sêkartaji) tuwin dèwi Onêngan. Jayèngraga angêtog bêksanipun. Sapolah-tingkahipun sakalangkung ngrêsêpakên adamêl kedananipun para ningali jalêr tuwin èstri. Kaca 18 – 24 603 Dhandhanggula 47.
+
+### 46.
+Tan prabeda kalawan kang anis|Sêkartaji Ni Candrakirana|malah kaparèndah mangke|yèn wus mong krama lulut|sumiliha kaprabon-mami|jemênênga narendra|nèng Jênggala mêngku|wadya kadang kadeyanta|jênêngingsun magawan among sirèki|anèng Cintakapura||
+
+### 48.
+Aturira wau sang Apanji|rêndhêt kalangkung dènnya lênggana|tan kumambang ing karsane|Dewaji Sang Pukulun|pun Apanji tan miyat lyaning|namung Candrakirana|kang karya gêng wuyung|suka tumêkèng pralaya|yèn tan panggih lan putranta Sêkartaji|kusuma ing Mamênang||
+
+### 49.
+Angupaya sêdya setra-candhi|Prabu Dewakusuma èmêng tyas|myarsa ture putra mangke|sang nata wus andulu|dhuh atmajaningsun Apanji|paran wasananira|awèta gung wuyung|kya patih Kudanawarsa|angrarapu mring sang wira Adipanji|anggarap ngêmu waspa||
+
+### 50.
+Myang kang para Panji anangisi|mring rajaputra kang pinangeran|arubung kanan keringe|umatur arawat luh|dhuh turutên ramanta aji|sirarya Brajanata|tansah angrarangkul|mring ki putra kasatriyan|sarwi waspa dhuh yayi turutên mami|tuduhe sudarmendra||
+
+### 51.
+Kumaroyok èsthane nangisi|sakèhing wong nonton samya wêlas|mulat kang dadi Panjine|karagan mèh satuhu|malah akèh kang mèlu nangis|dhasar wus kagrimisan|mring Jèngraga dangu|wong wadon tuwa myang bocah|ting salênggruk wênèh nangis tanpa kawis|ela-èlu kewala||
+
+### 52.
+Wus mangkana bubaran kang nangkil|kang jinêjêrakên angêdhatyan|pra bagor samya anglènggèr|pinangka samya mundur|mulih sowang-sowanganèki|tan wusning ucapêna|patopènganipun|saurut lalakonira|Jayèngraga yèn nuju wawêton Panji|tan liyan kang ing nglaras||
+
+### 53.
+Samya karênan lêlakonnèki|myat solahe Sarag praptanira|katrima guna dhêsthine|kèdhêp sawuwusipun|sang Apanji wus kèngguh ing sih|mila Prabu Jênggala|mangke karsanipun|ing karsa mangun wiwaha|rajaputra lan putri binayangkari|rinêngga pinangantyan||
+
+### 54.
+Sabên wêton Panji Jayèngragi|dene kang paman Ki Kulawirya|kang dadi Gunungsarine|abêsus olèh guyu|ngakak rênyah gêtan nyêlori|angècèr babantêran|wong kèh kang kayungyun|Nuripin Sadugawèlnya|Ki Pangulu Asradênta Dhoyoknèki|pantês wong ro sambada||
+
+### 55.
+Sabobote pangulu lan santri|karya banyol cucutira dahat|Sadugawèle angomèl|hèh Dhoyok kawruhanmu|sun-tuturi duk nom sun nguni|bot-bote wong kasrakat|angingoni gulu|nglêmbara (m)bêbarang maca|layangku mung sakêbet ringkês ngong linting|daya yèn tinulisa||
+
+### 56.
+Tulisane mung satugêl larik|bola-bali ing pamacaningwang|ingong bacutake dhewe|bêrkat bêcik swaraku|mrana-mrana tinanggap mami|kongsi cupêt sadina|kalarisan payu|Dhoyok angling layang apa|Sadugawèl nauri layang pêrmati|mêngkono uninira||
+
+### 57.
+Sêmut irêng anak-anak sapi|
+
+ê
+
+### 57.
+ng êng êng êng mung iku uninya|nora nana manèh-manèh|Ki Dhoyok ling hus buntung|têka dene bisane laris|nauri laris pisan|kang nanggap kumrubut|jêr wong ora nganggo opah|ukur akon bae kosêngguh ngopahi|tulus tan ana opah||
+
+### 58.
+Sadina bênthang kalanlih ngêlih|nuli olèh sêmbulih wakingwang|mring padesan panujune|Dhoyok ngong pinèt mantu|kedanan mring swaraku apik|rinewang bukak kawah|nganggo nguyu-uyu|nêmbêlèh kêbo sapasang|wong sadesa kabèh padha kêmul jarik|tan ana ngliga awak||
+
+### 59.
+Basa têmu maratuwa mami|akon amuni gamêlanira|kumrawak kodhok-ngorèke|nora na bedanipun|calathune gamêlanèki|padha nyêngkarak erak|gêrok angêndhuruk|basa têmu nèng pajangan|padha mangan bojoku ingong-kêpêli|kagêdhèn kêpêlingwang||
+
+### 60.
+Pitung kêpêl êntèk dèn-puluki|kari sakêpêl pangêlêdira|kasêrêtên gèdhèg-gèdhèg|nglumpuk kêpêlan pitu|nora kolu mandhêg nèng mênjing|aglis manira nyandhak|gulune bojoku|malêmbung sawaluh dandang|panyanaku kêpêlan kang mandhêg iki|tan wruh yèn gondhokira||
+
+### 61.
+Nguli-uli bojoku anjêrit|gupuh sanake padha bramantya|barêng ngêbyuki ngong kabèh|kang (n)jêjêg kang anjagur|kang ngawêlas ana mênthungi|dèn-aranni wong edan|Dhoyok raganingsun|srupaning kang mala mring wang|kabèh padha gondhok-gondhok sun-tingali|ngêtèmbol sagèmbolan||
+
+### 62.
+Kadèkêna calathune sami|nora beda padha bêbagoran|glêrêg lir têkèk gowoke|sabab gondhok sadarum|gondhok dalah gamêlanèki|kabèh sadesa pisan|wong gondhok ngalumpuk|ting garèndhol gondhokira|kucing kirik gondhok miwah kêbo sapi|gondhok-gondhok sadaya||
+
+### 63.
+Lamun nora gondhok jare wêdi|yèn kinêrah marang wong sadesa|Ki Sandilumur anjêngèk|mojar ngagagi jagur|ngudubilah sètanirajim|punapa bêbanyolan|anyêmoni mring sun|Nuripin gumuyu latah|kang Sradênta ngong datan nyêman-nyêmoni|sablakane kewala||
+
+### 64.
+Gêr ginuyu wong ing kono sami|Dêmang Wirancana Wiracapa|lan pra kadang sadayane|langkung suka andulu|mring banyole santri Nuripin|dudu wuwusing wayang|wus calathu lugu|Ki Pangulu Asradênta|kang ginuyu nganggo nyêbut cara santri|gèsèh ing patopèngan||
+
+### 65.
+Langkung sukanira kang ningali|bagor lalakone Narawangsa|kèh kasmaran panontone|wêruh ingkang anggambuh|Jayèngraga Kulawiryèki|tan kuciwa sabarang|cèplêsira mungguh|malah pra bagor manelad|pamiwire tatikêlane ngarangin|kang kadya Jayèngraga||
+
+### 66.
+Ana putune Ki Nayakênthi|lawan ponakane maksih bocah|sêmamar mèlu anopèng|rêsik rupane suluh|rumucuhe pawakan èstri|ran Wukir lan si Laba|karone wus gambuh|Wukir dadi Narawangsa|pan si Laba putune Ki Nayakênthi|si Wukir kaponakan||
+
+### 67.
+Laba kang dadi Onênganèki|Jayèngraga suka maring bocah|ro Laba lawan Wukire|wiyungyun jroning kalbu|dhasar komuk wong sadesèki|si Wukir lan si Laba|di têmbunging kidung|yèn anopèng Wukir Laba|wong kang nonton akèh samya amèwèhi|kêmbang kinang busana||
+
+### 68.
+Miwah arta sinungkên mring Wukir|myang si Laba ing sasênêngira|yata kang samya anopèng|urut salakonipun|Sêkartaji putri Kêdhiri|sinêndhalmayang Dewa|pinulung dinunung|nèng wana-gunge Sêmara|
+
+-
+
+### 68.
+sèwu nêgês ing Bathara Odipati|tinurunan Jawata||
+
+### 69.
+Jinurungan sasêdyanirèki|Sêkartaji pan wus dadi priya|sinungan Narawangsane|tinuduh mring praja gung|ing Jênggala amangun-kardi|lumampah kawlas-arsa|wong nonton kayungyun|mring kang dadi Narawangsa|wus kapêthuk Sadugawèl gya ingirid|ingambil karya patah||
+
+### 70.
+Wus apanggih lawan sang Apanji|langkung anyênyêt pamoyokira|mring Sarag kasatriyane|anggulêt ing kalulut|Narawangsa lawan Apanji|wong nonton ragan-ragan|pinindha kadyèku|anutug lalakonira|nuju Panji akarya lalangên ringgit|Narawangsa andhalang||
+
+### 71.
+Pra ngigêl pangikêling cêmpurit|
+
+(
+
+### 71.
+m)branyak sarwi aleyangan kothak|dyan Panji tansèng wurine|miluta sojaripun|ngungkih Sêkartaji sajati|wêdhare Kirananya|kang pinurwa sêmu|wasi Kuda-narawangsa|kaduk wuwus pangokonira akikip|aguyêg ing paguywan||
+
+### 72.
+Yèn sun-cawuk lambemu angisis|sun-colok ing ngêlêng-ngêlêngira|macothot manikmu molèr|têmah mêlêngmu bawur|tan idhêp ring bojonirèki|malolokakên mata|si abuh malêmpuh|têmbako pangusap waja|susar-susur loke araning garingsing|sira gung kacomplongan||
+
+### 73.
+Ancur-banon pataranganing prit|lêbur atimu uwus karuhan|dèn-abyag ing bajul bèbèk|katêluh ing kalinthuh|myang babêthuh angungunthuhi|rambutan isi pacar|elinga wong bingung|liwung ngiwung edan ngomyang|angêlamuk kalinthunging linthung kênthing|thèthèkan ngothak-othak||
+
+### 74.
+Langkung suka kang sami ningali|saking nyênyêde carêmêdira|Jèngraga lan si Wukire|atine wong awuyung|brangti marang Jèngraga-Wukir|katêlu mring si Laba|kèh mring Jèngragèku|mangkana sadangunira|Narawangsa kinasiyan Jayèngrêsmi|wus wêdhar ing kêkêran||
+
+### 75.
+Sarag-ira wus kinèn nêlasi|Wadal-wêrdi wus nèng pamagahan|pinulung ing Batharane|dadya sang Panji gandrung|marang Kae pindha-wawasi|sajatine Kirana|mangkya karya gandrung|angarah kang malih warna|ri sang Adipanji Inokartapati|gandrung samarga-marga||
+
+### 76.
+Kadeyan pitu kawolu èstri|sira rara Onêngan kasanga|kang para wadon cacahe|tutwuri ri sang gandrung|datan kêna barang kaèksi|kang myarsa têbah-jaja|mara gandrung-gandrung|parênjak nèng kayu teja|rinarêpa rinungrum ingarih-arih|cinipta putri Daha||
+
+### 77.
+Ragil-kuning tansah anangisi|kang raka cinènèng paningsêtnya|kakang aja anêlame|têka agandrung-gandrung|kapirangu ing prênjak muni|dudu Candrakirana|pinarêpa gandrung|gandrungmu asalah cipta|iku manuk parênjak rong jodho muni|(ng)gantêr nèng kayu teja||
+
+### 78.
+Anauri iku dudu pêksi|kakangira kusumèng Mamênang|duduka marang sun mangke|mêjên tyas anggung gandrung|kapirangu rêngu ing mami|mimikaning kusuma|mawèh mepu gandrung|gandrung manira tan nyana|yayi Wasi putri adi ing Kadhiri|ran Kuda-narawangsa||
+
+### 79.
+Radèn Panji Ino Kartapati|tansah kantaka samarga-marga|rinubung pra kadang kabèh|nangisi ri sang gandrung|samya mêngkul suku anangis|wong nonton sadayanya|samya sênggruk-sênggruk|tan raga-raga ringgitan|kadya sawantahe rasane kang ati|tapis rantas katrawas||
+
+### 80.
+Jalu èstri netra datan arip|saking dènnira suka tontonan|kalulut lakoning topèng|kèlu kawêlas-ayun|sira nimas Rara Widuri|kadurus rudatin tyas|anglês lir winuluh|myating bagus Jayèngraga|Ni Widuri mèh-mèh bae kurang thithik|ngrasuk têngah kalangan||
+
+### 81.
+Tan wus ucapên solahing jalmi|kang anonton kadi lênglêng brangta|ya ta lah lakoning topèng|ing wanci lingsir dalu|sigêgên ing caritanèki|Ki Nayakênthi kêprak|pangucapira sru|anênggih ingkang kocapa|ingkang anèng Kalidhawung sanga Aji|Kalana Sewandana||Lir ginala-gothang kang anangkil|sigra tanggap ki niyaga buka|gumrêmbrêng sêsêg gêndhinge|pra bagor ngrasuk tapuk|ting jalikrah gidrah angibing|warna bala-bacingah|kawêng tali-wangsul|Ki Wuragil Kulawirya|pan dadya panyare Rangga Thana-thani|sisih Ujung-sambata||
+
+### 83.
+Bataura lan pra raja nangkil|ing Madhêndha Manila Manggada|kang kapara ngarêp dhewe|jèjèrira alungguh|Rangga Thona-thani lan malih|Arya Ujung-sambata|Bataura nêngguh|nutug jajanturanira|Gala-gothang nulya anibani gêndhing|miyos Prabu Kalana||
+
+### 84.
+Kêprak sarta kêplok angrangin|Jayèngraga ngowahi busana|sondhère pinorah-parèh|ingulur kuncanipun|kêpuh mulu-pêksi salisik|mêdhok wiwironira|sri angayu-apu|pamêkak têrtib binabar|alancingan panji-panji cindhe wilis|corak kisut parada||
+
+### 85.
+Jayèngraga ngrasuk tapuk-adi|Klana kancanan binabar anyar|sawuse anangkêp topèng|nulya ukêl agambuh|jêngkêr jêngkêng ingkang jariji|jêjêre talak mata|nging bêksa binêsus|akênaptining pangraras|nguras reka sandi lungiding pangibing|sinuntak tumplak lawak||
+
+### 86.
+Dhalang Nayakênthi angêthaki|anjanturi Kalana kasmaran|rêrêp ririh janturane|nutug janturanipun|Sri Kalana wuyung mangun-gring|putri-adi Ngurawan|paranning alinglung|gêndhingira sinasmitan|kêprak nêsêg ambyung sarancak arawit|wiraga Jayèngraga||Mêdêd mêngêd dènnira angibing|nêlasakên rarasing kalangyan|lir kajiman pangrangine|jariji kêjêr ngrayung|ngigêl ukêl parigêl ngrangin|manggal Manggalagita|tatapêngan nanduk|kipat amidak irama|dhêngkul angglong cingklok cêthik uklak aklik|pacak-jangga èglègan||
+
+### 88.
+Mênthang asta andhêngklang ngêtibing|têtêbêngan usab kêlèmètan|ilo-ilo alêlathèn|maju bandhil anurung|amêdidang|alênggak langak-langak|kiprah gêdrug-gêdrug|angêsrug mêdhi-kèngsêran|
+
+è
+
+### 88.
+pèk-èpèk ambuntut bèbèk kêkiris|kèrogan salênthikan||
+
+### 89.
+Ririgêgan laga tan karigit|kipat-kipatan nonang-aningan|lero kêncèt anêrècèt|ridhong ayam nêladhung|kasigêgan tanjak macaki|akiprah runjah-runjah|jarahan jujungut|juwête lorèng sêngèran|Jayèngraga wiraganira angênting|berag anèng kalangan||
+
+### 90.
+Sakathahe wong kang aningali|jalu èstri acipta kedanan|mring Jèngraga pangibinge|mêjên binglêng anglinglung|wlanjar randha somahan kêncing|tan beda brantanira|(n)dêlêng sang abagus|Jayèngraga pinurwèndah|sadayane pawèstri tan ana aking|ngêmbêr nyunyungannira||
+
+### 91.
+Yata wau Ni Rara Widuri|kadya wong kêna guna-wisaya|arongèh tambuh angêne|batinira baliwur|lir ginatêl karêpirèki|tan kêna sumêneya|wringut ing pandulu|ni rara ing Galèk-wulan|wulangune wus tan kêna dèn-sayuti|onênging tekadira||
+
+### 92.
+Ngènirakên sangkribirèng èstri|wus mantêp karsa mikir priyangga|katgada sanalikane|nimas rara nyat gupuh|lumayu tan wangwang ing jalmi|mimiyak wong jagongan|nulya ngrasuk purun|mring anggane Jayèngraga|rinukêtan tan bênggang lir pulut-kêlit|krakêt sarwi karuna||
+
+5 ( Tiyang kathah sami kapiluyu dhatêng Jayèngraga) Rara Widuri ingkang wontên ing dalêm wingking, manahipun sakalangkung gorèh nyumêrêpi tiyang kathah sami kapiluyu dhatêng Jayèngraga, karaosakên kados badhe ngrêbat Jayèngraga saking tanganipun, wêkasan nêmpuh byat lumajêng miyak para tamu laju dhatêng pandhapi nubruk Jayèngraga rinukêt botên sagêd kabênggang. Sanalika gègèr puyêngan. Para pamanipun Rara Widuri rumaos lingsêm nanging sami siyaga ing kewuh bilih wontên dukanipun para kadang ing Lêmbuasta. Kulawirya ngaglah ngampingi Jayèngraga. Jayèngrêsmi ing masjid kagèt mirêng gègèr ing pandhapi. Kae Kidang Wiracapa dhawuh dhatêng para abdinipun, sampun ngantos sami pancakara. Para ningali gumuruh gègèr puyêngan, kasaru dhatêngipun Rêtna Ginubah numpak kuda kairing sagawonipun, wasana sagêd nyigêg kawontênan ingkang mutawatosi. 603 Dhandhanggula 93.
+
+### 92.
+Jayèngraga kagèt dèn-kêkêti|mring Ni Rara Widuri keringnya|Jèngraga anglukar topèng|pra bagor miwal tapuk|gamêlan cêp tan ana muni|gègèr sak-panontonan|samya ngaruh-aruh|kang jagong mlêngak alêngak|sutanira Wirancana Ni Widuri|ngêbruki Jayèngraga||
+
+### 94.
+Kimas Wirancana Angabèi|lawan kadangira kang lêlima|Kimas Mancanapurane|lan Singabancanèku|Wisanjana Wiranjanèki|mangunjana pra samya|ambêg sura rêngu|cipta lingsêm ing sasama|de pulunanira Ni Rara Widuri|anumbuk nunjang-nunjang||
+
+### 95.
+Samya bramantya angingêr kêris|wong lêlima sarêng adêgira|dadya samya ngadêg kabèh|Wiranjana sru muwus|e e bilah kapriye iki|lah mangke ta mangke ta|sampun wontên rusuh|gumêdêr wong sakalangan|Ki Wuragil Kulawirya malangkêrik|ngangglah ngampingi putra||
+
+### 96.
+Sarwi angling mring putra Jèngragi|bocahe iku sira rangkula|ywa wèhi bênggang rakête|wus aja mèlu-mèlu|kurdakanesanake sami|sun ijènpriyangga|kang asoroh-amuk|sanajan kinarubuta|wong samene mangsa nêdya sun-unduri|suka matyèng kalangan||
+
+### 97.
+Yata ingkang anèng masjid alit|Jayèngrêsmi wusnya bakda tangat|kagyat sabawaning rame|jalwèstri sru gumuruh|kapyak ingkang gagaman kèksi|wus narka yèn babaya|ingkang paman wau|sigra têdhak saking langgar|mring pandhapa wus panggih lawan kang rayi|myang paman Kulawirya||
+
+### 98.
+Mas Wirancana tan bisa angling|gêtêm-gêtêm manahe kèwuhan|suwe-suwe bot wirange|supe kramaning lungguh|wus supêkêt lan kadangnèki|myang pra santananira|nêdya ngrurah rusuh|anglêbur ing Lêmbuasta|Kae Kidang Wiracapa asru angling|mring kadangira tiga||
+
+### 99.
+Hèh Wiranjana Wirancanèki|Wirabajra aja kakêrisan|niyat ambêg tatu bae|sabilai pakewuh|yèn tan kêna ingsun-tuturi|
+
+ê
+
+### 99.
+mbuh kêdadènira|ya nêngna bae wus|gègère ing pakalangan|tanpa rungyan gègère pating jarêlih|mapanakên gagaman||
+
+### 100.
+Tan antara dangu ingkang prapti|wau sira Ni Rara Ginubah|anêrak wong sami mire|laju mring pandhapa gung|taksih manggung nitih turanggi|srênggalanya wayungyang|tan têbih nèng ngayun|Ni Rêtna asru lingira|iki ana apa prakaranirèki|gègère ing kalangan||
+
+### 101.
+Kidang Wiracapa marêpêki|mring putranira Rara Ginubah|sarwi alon pamuwuse|lah mudhuna karuhun|mêngko sira ngong-pituturi|ni rara gya tumêdhak|sing turangganipun|rêrêp tan ana wong mojar|Kae Kidang Wiracapa mituturi|purwa madya wasana||
+
+### 102.
+Wus ngartika ni rara nulya ngling|wis-wis aja na padha adêgan|sadaya pra samya linggèh|babêkêl bundhêl umbul|namung Wirancana Ngabèi|sakadangira lima|myang santananipun|mire nèng pojok pandhapa|maksih ngadêg kumpul tan ana kang linggih|Ni Rêtna sru ngandika||
+
+### 103.
+Hèh-hèh Wirancana kang Ngabèi|dene arakit sakadangira|dêlênge kaya agawe|kaya bocah sirèku|ing prakara tan nganggo pikir|tur ta mangsa bejosa|kabèh dhi-adhimu|iku si Mancanapura|sakadange padha bêthatha-bêthithi|kumaki mongsèthora||
+
+### 104.
+Yèn sira nora lungguh tumuli|pa kongsi sun srêgakên srênggala|githokmu wong lima kuwe|kêndhak ingkang sinêndhu|nulya samya atata linggih|Jèngrêsmi Jayèngraga|Ke Kulawiryèku|lênggah anèng pakothakan|kapat lawan sira Ni Rara Widuri|ambondhèt Jayèngraga||
+
+### 105.
+Maksih mingsêg-mingsêg dènnya nangis|yata Ni Rara Rêtna Ginubah|lan kang rama myang ibune|mêrpêki (ng)gyanning lungguh|Kae Wirancana Ngabèi|sarya lon wuwusira|kang Bèi sirèku|idhêpên pituturingwang|aprakara anakmu Rara Widuri|pupusên driyanira||
+
+6 ( Dhatêngipun Rêtna Ginubah damêl sigêg gègèr ing pandhapi) II. Dhatêngipun Rêtna Ginubah sagêd damêl sigêg gègèr ing pandhapi. Sadaya lajêng sami lumêbêt ing dalêm wingking. Wosing rêmbag, Ni Widuri kajodhokakên kalihan Jayèngraga. Kaningkahakên anut limrahing ngakathah, sarta kapanggihakên manut tatacara. Sadaya wau katata jangkêp dening Rêtna Ginubah. Dhauping pangantèn kawiwaha wontên ing Lêmbuasta. Dhatêngipun Rêtna Ginubah nyapih kawontênan ingkang mutawatosi. Saking pitêdahipun sang Rêtna, Rara Widuri kajodhokakên kalihan Jayèngraga. Sanalika Rêtna Ginubah nata paningkahipun têmantèn, panggihipun ngantos dumugi sajèn tuwin tata-cara lan kêndhuri botên wontên ingkang kalangkungan. Sadaya tiyang sami ngungun dene Rêtna Ginubah sagêd nata samudayanipun tanpa cèwèt, ngantos kadosdene sampun nate murba gadhah damêl mantu, ing mangka gêsangipun tansah wontên ing wana. Sasampunipun rampung paningkahipun têmantèn, Rêtna Ginubah wangsul dhatêng asramanipun, kacandhêt botên purun. Bêksan bagoran kalajêngakên, pinangantèn sakalihan kadhawuhan manjing pasareyan andumugèkakên karsa salulut, dumugi Subuh sawêg luwaran. Kaca 27 – 36 603 Dhandhanggula 106.
+
+### 105.
+Bageya wus pinasthi Hyang Widdhi|ya wus aja kèh-akèh rinasa|mungguh ing karêpku dhewe|ya si Widuri iku|sun-panggihkên lan Jayèngragi|apan iku wus padha|karêpe kadyèku|ingsun pasaja kewala|lamun sira tan miturut jênêng-mami|apa sakarêpira||
+
+### 107.
+Yèn budiya ingsun sêmbadani|yêkti sun-gawe pakan gadhungan|mangsa wurunga ing mangke|dene yèn sira nurut|yêkti bêcik dadine benjing|malah sira kang bêgja|lèhmu duwe mantu|ngulama bagus tur nyata|sarwa wasis cacalon jalma linuwih|lagi karêm ngarucah||
+
+### 108.
+Kidang Wiracapa nambungi ling|anakmas Dêmang Prawirancana|prayogi pinikir sarèh|pinrih ing tamanipun|pênêt ngangge geyongan ngèlmi|lêrês ujare rinta|kang kadya puniku|Kae Dêmang Wirancana|wijiling ngling sêrêt amangsuli aris|mring Ni Rêtna Ginubah||
+
+### 109.
+Manira wus anut ing sirèki|iya yayi paran sakarsanta|tan lênggana saliring rèh|kewala ingsun anut|marang sira tan swalèng ati|mangsa bodhoa sira|pulunanirèku|si Widuri ingsun pasrah|lah sumangga karsane paman kang yêkti|rêmbuge kang kinarsan||
+
+### 110.
+Ni Rêtna Ginubah angling malih|pan wus sira sumarah maring wang|rinêmbug wong tuwa kabèh|payo padha alungguh|anèng wisma lan kyai-kyai|rêrêmbugan kang dadya|ya êndi kang mungguh|nulya sami maring wisma|para tuwa Ni Rara Ginubah angling|mring Kae Jayèngraga||
+
+### 111.
+Hèh man Wirya lan kakang Jèngragi|payo lênggah ing jarambah wisma|padha rêmbugan bêcike|lan kakang Jèngrêsmiku|ywa sumêlang driyanirèki|lêstarining prakara|ingsun kang ananggung|tutute kang duwe sanak|sêtun pamrih ingsun sakarone sami|lulusing kabêcikan||
+
+### 112.
+Lah wis payo mring wisma alinggih|si Widuri iku ywa kêna sah|mêngko pikirên bêcike|anulya kèrid masuk|nunggil tata dènnira linggih|nèng ngarsaning tilaman|akêpang akêpung|Kae Kidang Wiracapa|Dêmang Wirancana Mancanapurèki|lawan Singa-bancana||
+
+### 113.
+Wisancana Wirancana nênggih|Mangunjaya nunggil Wiranjaya|sang Wirangkara twin manèh|Wirabajra atêpung|Ki Wuragil Kulawiryèki|Jayèngrêsmi acêlak|kalawan sang ayu|Ni Rara Rêtna Ginubah|Jayèngraga kalawan Rara Widuri|nèng pungkure sang Rêtna||
+
+### 114.
+Sang Retna Ginubah angling aris|paran kang dadya rêmbuge samya|manawa na malang mangke|aja na dèn-dhong wuwus|ngucirani ing rêmbug dadi|sadaya tan suwala|jumurunging kayun|sang Rara maturing rama|yèn sambada putumu Rara Widuri|lan kakang Jayèngraga||
+
+### 115.
+Sun-dhaupkên ing sawêngi iki|paningkahe saiki kewala|lah ibu rumatên age|abon lan suruh-ayu|Kae Kidang Wiracapèki|mojaring garwanira|rubiyah dèn-gupuh|ngrakita praboting ningkah|lan dèn-enggal dadakan bae saiki|karêpe sutanira||
+
+### 116.
+Ingkang garwa Nikèn Widaryati|tur sandika lèngsèr saking ngarsa|angrukti nuduh parêke|parèstri sigra ramut|bon-abone sasanggèn kawin|tan dangu wus samakta|katur anèng ngayun|Ni Rara Rêtna Ginubah|angandika tatanên nèng têngah aglis|hèh Pangulu Sradênta||
+
+### 117.
+Lan Nuripin majua ing ngarsi|lan ngundanga manèh roro êngkas|kaum kang dadi sêksine|Asradênta agupuh|ngundang papat kancane modin|tan dangu nulya prapta|sang Rêtna amuwus|kang Dêmang Prawirancana|walènana sutanira Ni Widuri|ing kene mangarsa-a||
+
+### 118.
+Nunggala lan kakang Jayèngrêsmi|sigra Wirancana nulya mapan|Ke Kidang Wiracapane|atata dènnya lungguh|ki pangulu sampun miranti|maksih samya basahan|lan Nuripin wau|ni rara alon ngandika|kakang Jayèngraga majua ing ngarsi|gupuh ingkang liningan||
+
+### 119.
+Angling malih Ni Rara Rinujit|ibu iku putumu Ni Rara|rêsikana sapatute|wèhna ibune (m)bakyu|Wirancana kèn (m)busanani|kêrik alise sarat|brêkat sih akudhup|kang ibu nulya angalap|mring Ni Rara Widuri kèn-(m)busanani|dadakan pinaèsan||
+
+### 120.
+Ni Rara Rêtna Ginubah angling|lah wus kakang Bèi Wirancana|têmbunga lan pangulune|kang liningan agupuh|Wirancana nulya majibi|alon ing wuwusira|hèh kyai pangulu|kula ngrêsaya jêngdika|(n)dika ningkahakên nak-kula Widuri|lawan Ki Jayèngraga||
+
+### 121.
+Maskawine pan salaka putih|wrat satail Ki pangulu sigra|angabulkên paningkahe|sigra maca tangawut|ngusikumi badlal wa-napsi|wabi takkuwa Allah|
+
+-
+
+### 121.
+hi Allah wa-ngidun|wa-bin-tilani wa-minta|bima haribadi ki pangulu angling|pakênira ngucapa||
+
+### 122.
+Anarima kawula puniki|paningkahe Ni Widuri lawan|kawula lan maskawine|salaka putih nêngguh|wrat satail dadosa mangkin|utang-kula ing donya|ing ngakeratipun|wus tinurut saujarnya|nulya maca sabadlakal-lahubari|ngaliyil ngalimina||Ngaleka-hèr-wabi dalihihi|Allahuma alibbena huma|bi-rahmattiyar mukrime|têrus salajêngipun|dènnya donga awanti-wanti|anulya saksinira|Nuripin tumanduk|mèsêm jrih sajroning nala|sarwi nêkêm jêmpole Ki Jayèngragi|pan sarwi jinanjènan||
+
+### 124.
+(n)Dika tampi jangji-dalêm mangkin|lamun nora yèn anuronana|ngomahi ngayani mangke|sah tanpa talakipun|sung maskawin marang ing rabi|lan malih yèn nambanga|ing rabinirèku|pitung sasi ing dharatan|rong taune lautan saliyanèki|gawe-dalêm ayahan||
+
+### 125.
+Tan trimane rabinira benjing|runtuh talakira kang satunggal|tinagih ing maskawine|Jèngraga ngling wus saguh|nulya modin Ki Nurjuwahir|nambungi maca donga|Salamêt anutug|sawusira ingaminan|Jayèngraga salaman ngabêkti maring|Ke Kidang Wiracapa||
+
+### 126.
+Lan mring Wirancana mratuwèki|samya rarakêtan parimarma|miwah mring kadange kabèh|anor pangrêpanipun|ingalatira pra sami|minta alalbahalal|wus maklum-minaklum|warata pasalamira|mring pangulu Asradênta myang Nuripin|myang modin sinalaman||
+
+### 127.
+Angabêkti mring raka Jèngrêsmi|miwah mring kang paman Kulawirya|sung salam Ni Rara Nikèn|kang rayi datan ayun|lan wus aywa awalang-ati|anggêpok raganingwang|tan kêna anyukup|priya marang raganingwang|mangsa kalirua kakang sihing ati|kang tumêka tyasing wang||
+
+### 128.
+Mèsêm Jayèngrêsmi Jayèngragi|kaluhuran wingiting wacana|saya mawantu trêsnane|mring Ni Rara Rinêmpu|kang ngasramèng ing wana rungsit|yata aboning ningkah|sarah abonipun|tinampan ing Asradênta|sinungakên muadin kinèn ambagi|sabokor mring Asradênta||
+
+### 129.
+Pinaro lawan santri Nuripin|kang sabokor dinum santri kathah|tindhihe rong reyal sisèh|wus rampung pandumipun|angling malih Rêtna Rinujit|lah iku putunira|si Widuri mau|paran wus dènnya busana|sakadare dadakan rêbut ing wanci|daya-daya têmu-a||
+
+### 130.
+Bokmas Wirancana anauri|sarwi waspa muwus samêktèng dyah|sompok sarupa-rupane|Rêtna Ginubah muwus|ngarah apa wus bêgjanèki|mêngko bae wasisan|kêndhuri majêmuk|rêbut têmuning pangantyan|Jayèngraga pinatut pangaggenèki|akuluk kanigara||
+
+### 131.
+Ni Rêtna Ginubah angling malih|pangantène dyah nuli wêtokna|mas Wirabajra dèn-age|gamêlane kon nabuh|Kêbogiro Wirabajra glis|parentah ring niyaga|muni gamêlan sru|ngrarantêg ngrangin araras|pangantèn dyah sira Ni Rara Widuri|mijil sing pamirèyan||
+
+604 Mijil 1.
+
+### 131.
+Ni Widuri binusanan asri|tuhu ya kinaot|datan mantra yèn dadakan trape|kongsi karya lêlatha thi-athi|mathinira nitis|cacithak cacênthung||Kinaroning ngiring bubahnèki|kanan kering ngroyom|para (m)bokajêng sabêndhoyote|myang nini-nini milyanjênêngi|panggihing pangantin|mangkana pra kakung||
+
+### 3.
+Sadayanya samya angadêgi|tan ana kang lunggoh|sira Rêtna Panggubah pan age|nyandhak astanira Ni Widuri|paguting pangantin|gagantalan gupuh||
+
+### 4.
+Horêg ingkang ningali ing (n)jawi|jêjêl rêbut ênggon|lan kang (n)jaba sami ngadêg kabèh|myang pra bagor tan ana kang linggih|panontone ngalih|mring wisma sadarum||
+
+### 5.
+Ni Rara Ginubah angling malih|tumpêr kayu kelor|kon-nyêkêli si-lanang tumpêre|si Widuri kang anyiram warih|sarat dhudha panggih|lawan prawan kêncur||
+
+### 6.
+Lan tigannya tinibakkên aglis|mring jrambah kumêprok|toyèng bokor sêkar sêtamane|tinètèskên ing êmbun kaping tri|ni rara ngling aris|nêmbaha sireku||
+
+### 7.
+Mring lakimu anuruha warih|mring padanira ro|Ni Widuri anêmbah sira ge|nguswa suku nguswa padèng laki|sang Rêtna ngling aris|pondhongên bojomu||
+
+### 8.
+Jayèngraga ngalap Ni Widuri|sang rêtna pinondhong|prapta madya ing tilam ngarsane|ibu Widaryati kang nêngahi|ing kering Widuri|sang Rêtna Rinamu||
+
+### 9.
+Jajar lan (m)bokmas Wirancanèki|myang mratuwa wadon|kananira Ki Jayèngragane|Kae Mas Dêmang Wiracapèki|nulya Jayèngrêsmi|Ki Kulawiryèku||
+
+### 10.
+Gya Mas Dêmang Prawirancanèki|sauruting lunggoh|para kadangira sadayane|Wirancana myang Wirakarèki|Wirabajra nuli|Mancanapurèku||
+
+### 11.
+Singabancana arinirèki|sauruting lunggoh|Wiryanjana lan Mangunjanane|Ki Pangulu Sradênta Nuripin|pra mantên lan modin|têpungira lungguh||
+
+### 12.
+Ni Rara Ginubah angling malih|mring kang paman gupoh|hèh Mas Wirabajra sira age|kandhurine wêtokna dèn-aglis|kang sinung ngling nuli|nuduh rewangipun||
+
+### 13.
+Kasinoman samya ngêladèni|salawe ambêng bot|kang nèng panjang gêng pan kêndhurine|anèng wisma pininta jalwèstri|pitung ambêng ngarsi|kang wolulas nêngguh||
+
+### 14.
+Ambêng layah agêng anèng ngarsi|pinètak pra wong-wong|Ni Rêtna ngling hèh pangulu age|donganana kajate kiyai|kirim donga Muklis|dongane majêmuk||
+
+### 15.
+Ki Pangulu Asradênta nuli|(n)dongani agupoh|ingaminan sru swaraning akèh|sawusira dènnira (n)dongani|sang Rêtna ngling aris|mara ta dèn-gupuh||
+
+### 16.
+Padha sira kêpunga kêndhuri|kabèh lanang wadon|sun anunggal pangantène bae|ibu lan (m)bakyu Wirancanèki|sarêng samya wanting|sarêng nadhah kêmbul||
+
+### 17.
+Ni Rêtna Ginubah angling aris|mring Jèngraga alon|kêpêlana bojomu tri bae|aywa kagêdhèn (ng)gonmu ngêpêli|Jèngraga ngèsêmi|sarwi ngêpêl sêkul||
+
+### 18.
+Kulawirya mêne mulat siwi|sarwi ngandika lon|nora jamak ngèram-ngèramake|sira iku Ni Rêtna awasis|lir wus anglakoni|kêdahe wong mantu||
+
+### 19.
+Iba wong tuwa samene iki|lir busuk anjomblong|kêndhak kabèh tan ana kumlawe|amung sira dhewe angugêri|apa sira nini|dhasare wus tau||
+
+### 20.
+Dene parigêl sabarang kardi|parentah marang wong|iya dene ta lah sira Nikèn|apatitis nuduh liring kardi|ni rara nauri|mèsêm sarwi (n)dulu||
+
+### 21.
+Kalingane ngumpak sira iki|mas Wirya maring ngong|Ki Wuragil anjola guyune|nora ngumpak satêmêne nini|Kae Angabèi|nambung wuwus (ng)guyu||
+
+### 22.
+Kadipundi punika dhi Ragil|putranta si Dhenok|wingi kula tutur sadayane|uning tiyang mantu kadipundi|sajêge aurip|tar wruh kukus-kukus||
+
+### 23.
+Sira Nikèn Widaryati angling|dènnira miraos|pan karaos pangrêsirèng tyase|myating karya lir mantu pribadi|lamine tan uning|rasaning mamantu||
+
+### 24.
+Ngêmbêng waspa sinamun abukti|ngênês ing tyas kepon|sang lir Rêtna Ginubah sêmune|kang tinadhah mung paru sacuwil|tan antara sami|kang nadhah anutug||Aluwaran kang samya abukti|sadaya tuturoh|ambêng dinum binêrkatan kabèh|jalu èstri ing jro lan ing (n)jawi|tan ana kang kari|ing pambêrkatipun||
+
+### 26.
+Nulya Ni Rara Rêtna Rinujit|wijiling sabda lon|padha kariya sun arsa mulèh|tutugêna kasukanirèki|kakang Jayèngrêsmi|man Kulawiryèku||
+
+### 27.
+Ingsun mulih mring asrama mami|akariya lunggoh|Jayèngrêsmi alon andikane|tanggung têmên yayi sira mulih|tatasên saratri|sesuk bae mantuk||
+
+### 28.
+Yèn kêna bêcike anganti|ing saulih-ingong|têka sesuk kêlawan êmbènne|Rêtna Ginubah nauri aris|kakang Jayèngrêsmi|sru panrimaningsun||
+
+### 29.
+Sun-tuturi kakang kawruhanèki|iya raganingong|nora bêtah têmu suwe-suwe|ing wong akèh sadumêlah mami|durung anglakoni|kadyèki papangguh||
+
+### 30.
+Dene kakang lamun sira mulih|aja walang-atos|pakewuhe nèng marga watire|iya aku ingkang mêmanuki|sira Jayèngrêsmi|rumojrong sakayun||
+
+### 31.
+Angling malih kakang Jayèngragi|kariya karongron|Jayèngraga alon pamuwuse|iya yayi pangèstunirèki|sang dyah nulya pamit|marang rama ibu||
+
+### 32.
+Mojar hèh man Wirabraja iki|
+
+ê
+
+### 32.
+ndi jaraningong|si Limutan ajokna marene|dyan lumampah anyèngklak turanggi|srênggala tan kari|ngijig anèng ngayun||
+
+### 33.
+Kewala laju têngah pandhapi|Ni Rêtna wus andon|de kang kantun anèng padhapane|Ke Kidang Wiracapa Ngabèi|angandika aris|mring kang samya lungguh||
+
+### 34.
+Pênêt anèng ing paningrat (n)jawi|aningali bagor|samya matur sumangga karsane|nulya nuduh marang ingkang rayi|hèh Wirabajrèki|ngambila kang salu||
+
+### 35.
+Kang rada ombèr ruktinên aglis|nèng paningrat kono|Wirabajra sigra ngambil age|bale agêng tinrap amiranti|wus samya miranti|sasaosanipun||
+
+### 36.
+Kae Kidang Wiracapa angling|mring Jèngraga gupoh|lah anakmas bagus pinangantèn|tumama-a alayap tilam-rik|Jèngraga turnya ris|sakalangkung nuwun||
+
+### 37.
+Pasihane kakang Angabèi|kawula rinojong|kinèn kulinèng patilamane|Kae Kidang Wiracapa angling|ywa sumêlang galih|sumangga ing kayun||
+
+### 38.
+Tan rumangsa andarbèni panti|salir sun-katêmpoh|Jayèngrêsmi lan Kulawiryane|apan samya micara jro ngati|anon ring Ngabèi|maksih labêtipun||
+
+### 39.
+Mangunahe ngulama katawis|lêkêting pasêmon|dènnya rakit ing pasunggatane|mawi kêmbarmayang mawut asri|tutuwuhan kitri|lir wong amamantu||
+
+### 40.
+Mangke têmahe Ki Jayèngragi|kang kinarya manton|kadya wus tan ninang graitane|Kae Kidang Wiracapa Bèi|angandika aris|wawi andudulu||
+
+### 41.
+Pênêt samya nèng paningrat linggih|nonton wong ambagor|Nayakênthi kinèn nutugake|lêlakone topèng dèrèng salin|kang liningan aglis|sandika turipun||
+
+### 42.
+Nulya sadaya samya umijil|nèng paningrat lunggoh|wusnya tata kabèh palungguhe|Kae Kidang Wiracapa angling|marang Nayakênthi|tutugna lakonmu||
+
+### 43.
+Kang sinung ling sandika turnèki|nulya kêprak gupoh|kang niyaga buka gamêlane|yata kang nèng wisma Jayèngragi|lan Nikèn Widuri|
+
+ê
+
+### 43.
+mban lawan ibu||
+
+### 44.
+Sinambrama mring Ni Widaryati|myang putra pra wadon|kinèn minggah mring pasareane|Ni Widuri wus tinarik guling|mring ibunirèki|wus tinarik turu||
+
+### 45.
+Nulya mire sadaya pawèstri|anon kang ambagor|Jayèngraga wus tumamèng langse|tumangkêping kasingkaping samir|sinamuring (n)jawi|tapuking atamu||
+
+### 46.
+Jayèngraga tumamèng tilamrik|kulinèng karongron|lawan Rara Widuri pinaès|Jayèngraga agyarsa murwani|de kang sêkar kincip|wêdharing mabangun||
+
+### 47.
+Amêpêki Jayèngraga ririh|Ni Widuri alon|angalêt wariju ginape|binaudan ing srênggara manis|amrih lunturing sih|brêmara marang rum||
+
+### 48.
+Nguswa angudi maduning sari|ni rara rinêmpon|sompok supêk pinapan ujure|pinriyêmbada pinongah pangih|angungkih kang tapih|timpahing ngapupu||
+
+### 49.
+Wus kawingkis akengis kang wêntis|lir pupus binêthot|andrawila adênta padane|sang kakung mrih ngingsêp ingkang sari|warastra nanduki|prananirèng kudhup||
+
+### 50.
+Rinabasa papan maksih kunci|kapêlak kabunton|dhêdhêl kèngêl kongkal pupungule|Jayèngraga adrêng dènnira mrih|Ni Rara Widuri|katêtêsaning hyun||
+
+### 51.
+Kadya tan nêdya kakung ngluwari|saking byatning raos|Ni Widuri kênthêng salugune|pinolahing kakung langkung wasis|pangêsêsira mrih|lir tan nêdya uwus||
+
+### 52.
+Yata kang marambah andon rêsmi|wanci akir Suboh|luwaran mring pahèran kaliye|Jayèngraga gya mèt toyastuti|mring masjid ngarèni|dènnya salat Subuh||
+
+### 53.
+Ni Rara Widuri wus sung suci|wangsul ing kakobong|kadya tan kêna bênggang anggane|tinilar Subuh tyas lir tan nganti|saking byating kang sih|wirangrong amingkur||
+
+### 605
+## Wirangrong  1.
+
+### 605
+Yata kang salat nèng masjid|wus bakda dènnira Suboh|kang raka kalawan pamanipun|Ki Kulawiryèki|Ke Kidang Wiracapa|wus lungguh anèng pandhapa||
+
+### 2.
+Jayèngrêsmi ngandika ris|marang pamanira alon|inggih ta kang lampah sakalangkung|sulaya ing kardi|ngupaya kang lêlana|anjajah guwa wanarga||
+
+### 3.
+Sring kacangkol ing pangampir|dadya ing lampah bêdhandho|angrandhati lampah anèng purug|paman kadipundi|pinikir kang sakeca|sutanta Ki Jayèngraga||
+
+### 4.
+Mangkya jênênging arabi|tan kênang ginupoh-gupoh|anèng Lêmbuasta apêsipun|sapasar tan mulih|yèn kongsi kalampahan|kewala nèng Lêmbuasta||
+
+### 5.
+Tan cakup tirakatnèki|têmah angambrêng lêlakon|kang paman ris nabda iya èstu|lir wuwusirèki|sumangga sakarsanta|ingong rèh anut kewala||
+
+### 6.
+Kang katêmu pikir-mami|kajaba karsanireko|namung maklumira kang sinuwun|wus ganjaranèki|nèng paran ababrayan|anakmas kang sinung coba||
+
+### 7.
+Mokal kalêmpit ing galih|lah ewadene samono|manira tan malangi sakayun|
+
+-
+
+### 7.
+nira ngong tutwuri|Jèngrêsmi lon ngandika|mring rayi sang Jayèngraga||
+
+### 8.
+Priye karêpira mangkin|rèhning kacangkoling wadon|paran sira-gawa iya mantuk|wartanana mami|apa ta sira tilar|kang rayi anor turira||
+
+7 ( Jayèngrêsmi rêraosan kalihan Kulawirya) Bakda salat Subuh, Jayèngrêsmi rêraosan kalihan Kulawirya kadospundi dene ngupadosi kadang dèrèng kapanggih, tansah kagiwang ing pangampiran malah ngantos kalampahan Jayèngraga rabi. Jayèngraga katantun ambêkta mantuk Rara Widuri, ajrih kadukan dening ramanipun. Pêpuntoning rêmbag, semah katilar lan badhe nglajêngakên lampah. Jayèngraga anyagahi ing têmbe badhe amboyong semahipun. Kaca 37 – 38 605 Wirangrong 9.
+
+### 8.
+Sumanggèng karsa kang mugi|nuwun anut ing papakon|jrih apti priyangga langkung nuwun|darmi anglampahi|Jèngrêsmi lon ngandika|iya bênêr aturira||
+
+### 10.
+Nanging tan mangkono yayi|mungguh babing wong jêjodhon|datan kêna liyaning angrêmbug|kêncênge pribadi|kang nyandhing lan kang nyandhang|yêktine anèng ing sira||
+
+### 11.
+Kang rayi umatur aris|inggih katilar kemawon|yèn parêng paduka inggih luhung|tumuntên lumaris|umangkat benjing-enjing|kawula datan sumêlang||
+
+### 12.
+Kang raka ngandika aris|iku ta ora mangkono|lèh pratingkah rucah nora wurung|sinêbut tan bêcik|bêcike sinarèhna|têka ing sapêndhak dina||
+
+### 13.
+Yèn ana karêpirèki|wong tuwane lanang wadon|nyalamêti anak amajêmuk|lan anake sami|dimèn padha katêkan|nutug sawataranira||
+
+### 14.
+Yèn duga tyas-ngong pribadi|pupusên rèh wus katêmpoh|pan wus wajibira aywa kantun|gawanên amulih|marang ing Wanamarta|sarwa ora-a kuciwa||
+
+### 15.
+Dhasar rupane prayogi|bèbèt bobote atabon|abandha santana-santana gung|trah-trahing priyayi|santana Pranagara|bêndhèyoting (ng)Galèk-wulan||
+
+### 16.
+Kalawan paman Ngabèi|Kidang Wiracapa dhompol|maksih nunggal êmbah krabatipun|Pranagara sami|padha turun Bathara|wijil-wijiling awirya||
+
+### 17.
+Mulane ingsun ngrêmbugi|manawa ginawa ngalor|kadipundi paman alon muwus|Ki Kulawiryèki|iya langkung prayoga|yèn kasambadan arinta||
+
+### 18.
+Priye anakmas Jèngragi|karsanira kang sayêktos|kang putra turira yêktinipun|pakèwêd ing ati|manawi dados dardah|putranta kang anèng wisma||
+
+### 19.
+Katur rakanta (n)Jêng Kyai|kawula têmah binêndon|tan wande ingaran wèng-wèng tuduh|sangêt kawula jrih|latah Ki Kulawirya|adhuh ya sun wis kaduga||
+
+### 20.
+Mangkene bae ing pikir|yèn arsa mangkat kemawon|sira pitêmbunga mring kang sêpuh|asanggupa bali|pinapak kang prayoga|caraning ngundhuh pangantyan||
+
+### 21.
+Jèngrêsmi nambungi aris|kawula datan rumojong|sabab karya dora kang satuhu|galating pa angling|dede caraning tama|akarya cidrèng sasama||
+
+### 22.
+Kang kapanggih rêmbugnèki|jênggan pasaja kemawon|andugèkkên ing lampah inggih lamun|pinarênging takdir|mugi-mugi wagêda|umampir panggih putranta||
+
+### 23.
+Yèn tan pinarêng ing takdir|inggih sumendhe Hyang Manon|dèrèng kaparêngan untungipun|samya mujèng Widdhi|arjanira ing lampah|mugi dumugi ing karsa||
+
+### 24.
+Wus dadya rêmbaging pikir|Ki Jayèngraga wus sagoh|Wirabajra prapta alon matur|pra ngawirya katri|paduka ingaturan|mring pamanta nèng pandhapa||
+
+### 25.
+Wus kèrid ing lampahnèki|maksih wong ingkang ambagor|pupute tanggungan tutugipun|yata kang alinggih|Jèngraga Kulawirya|mèh karsa jurudêmungan||
+
+### 606
+Jurudêmung 1.
+
+### 606
+Kae Kidang Wiracapa|nèng paningrat dènnya lungguh|lan kadang sawarganipun|myang besan Mas Wirancana|sakadang sêntananipun|Jayèngrêsmi Jayèngraga|lawan Ki Kulawiryèku||
+
+### 2.
+Parèstri anèng jarambah|Ni Widaryati anuduh|naoskên dhaharipun|ladosan enjing-enjingan|ulam rampadan myang bucu|saput prantining adhahar|myang jajanan kang winungkus||
+
+### 3.
+Samakta anèng jarambah|Widaryati anèng ngayun|matur ing raka yèn sampun|ing pundi ingkang kinarsan|adhahar panggènannipun|ngling Ke Kidang Wiracapa|ing jro bae bêcikipun||
+
+8 ( Jayèngrêsmi rêraosan kalihan Kulawirya) III. Pahargyan ngundhuh têmantèn. Dêmang Prawirancana gadhah niyat ngundhuh têmantèn dhatêng Trênggalèkwulan. Jayèngrêsmi nyuwun, supados pahargyan wontên ing Lêmbuasta kemawon. Sêdaya sami rujuk. Ngundhuh têmantèn ing Lêmbuasta kanthi ngaturi pirsa priyayi ing Panaraga tuwin sanak sadhèrèkipun Prawirancana, mila sakêlangkung rowa. Sadaya ubarampening pahargyan kadhatêngakên saking Trênggalèkwulan. Bagoran kasambêt wayangan Krucil, dhalang Ki Mênthak. Kidang Wiracapa nêrangakên bedaning raosipun ringgit Krucil lan ringgit Purwa cundhukipun kalihan ngèlmu kakekat lan makripat. Para tamu katêtêpakên papan panyipênganipun. Kidang Wiracapa nglajêngakên ambabar ngèlmu dhatêng Kulawirya ngantos dumugi bab carêmêdan kacundhukipun kalihan ngèlmu. Kocap Rara Widuri sakêlangkung rakêt-rumakêt kalihan Jayèngraga ngantos mèh botên kenging pisah. Napsunipun salulut anglangkungi, bêtèkipun prawan sampun radi lungse. Makatên wau ngantos damêl kirang panujuipun Jayèngraga. Kaca 39 – 62 606 Jurudêmung 4.
+
+### 3.
+Nèng (n)jaba sompok cawingah|tan bêcik bukti kadalu|kang garwa alon umatur|sumangga punapa karsa|paran sadaya wus ramut|Ke Kidang Wiracapa jar|nyarani sadayanipun||
+
+### 5.
+Suwawi sami malèmbang|maring wisma pênèdipun|kang samya sinung ling matur|sumangga punapa karsa|kèrid mring wisma sadarum|Jèngrapa sang pinangantyan|lan kang garwa jajaripun||
+
+### 6.
+Ke Kidang lon angandika|lah Widaryati sirèku|kêmbula lan nakirèku|
+
+(
+
+### 6.
+m)bok Bèi Prawirancana|lan pra wadon dhi-adhimu|kabèh nakmu (ng)Galèkwulan|kêmbula sami akêpung||
+
+### 7.
+Kang liningan tan lênggana|sadaya sami tuturuh|gya lêkas nadhah sadarum|Ni Widuri lan kang raka|Jayèngraga dènnya kêmbul|kadya mimi lan mintuna|samya sih siniyanipun||
+
+### 8.
+Pan kantun panadhahira|Ke Kidang Wiracapèku|ngandika mring arinipun|e e ya bênêr kèlingan|Nuripin lan kang Pangulu|Asradênta timbalana|jak mangan kene dèn-gupuh||
+
+### 9.
+Ki Wirabajra gya prentah|kinèn nimbali pangulu|tan antara praptanipun|Nuripin lan Asradênta|Ki Dêmang angling gumuyu|mara banjura kewala|wisuh abacuta kêmbul||
+
+### 10.
+Agupuh ingkang liningan|Nuripin mangan athêkul|kêpêle gêdhe krêp muluk|ginuyu ring Kulawirya|caplag-caplug nora runtuh|ngling hêng niki prandènnira|taksih sangêt kawonipun||
+
+### 11.
+Lan kang Ngulu Asradênta|puluk pintên kathahipun|ing mangke kantênanipun|Ki Wirya aris amojar|wus nekat bae sirèku|sadaya kang sami myarsa|mring Nuripin angguguyu||
+
+### 12.
+Guyune nora ngartika|mung gumuyu dènnya muluk|calêputan lir wong ngêrbut|yata kang samya anadhah|pikantuk antara tutug|samya wanting wiwijikan|luwar dènnira akêmbul||
+
+### 13.
+Ki Pangulu Asradênta|wuse luwaran sadarum|dhuwêt prigêl anjupuk|kacune amba binabar|dèn-amrih ambêrkat sêkul|Asradênta kadumêlan|sarwi ulate malêruk||
+
+### 14.
+Ambakna mangan tan kaprah|iwake kang enak gêmpur|apa tan (n)dalinding murus|wêtênge iku kaya pa|Nuripin nauri nyamuk|sarwi ngêmil (ng)gadho iwak|lah apa ta kang pangulu||
+
+### 15.
+Jarku apa-dene nyata|ngêlar jajahaning kacu|ngrupak jajahaning bumbu|Sradênta angoso mojar|kèh têmên parikanipun|kongsi tan dhêngêr satuma|nora kaop wong abusuk||
+
+### 16.
+Ingong wong tan talatènan|mulya ambundhêli kacu|gêr ginuyu wong sadarum|pangulu mulih ambêkta|bêrkate sakacu munjung|santri Nuripin alatah|kang pangulu jarene busuk||
+
+### 17.
+Wong pintêre kalintêran|angingkut rampadan bucu|saya rame kang gumuyu|Kae Kidang Wiracapa|kalangkung suka tyasipun|myating Ripin Asradênta|ginujêng winoran wuwus||
+
+### 18.
+Ya ta lah si Asradênta|lèh tandhing dènnya kakancuh|têmua padha pangulu|Basarodin iba-iba|condhonge paguywanipun|sun-mulat si Asradênta|eling kancane si Bawuk||
+
+### 19.
+Kèngêtan kakang Rundaya|têkone bisa mèt kalbu|
+
+è
+
+### 19.
+sêman tan watak rêngu|kabuka lungiding driya|sinojar rowangnya dangu|kaladuk maksih nonoman|kanthinira angguguru||
+
+### 607
+## Kinanthi  1.
+
+### 607
+Wusira samya tuturuh|kang samya kêkêmbul bukti|ambêngnya wus cinarikan|sinungkên marang pamburi|waradin jalwèstri ngandhap|nulya dhadharan mangarsi||
+
+### 2.
+Sangkêpnya nyamikanipun|wowohan kang adi-adi|miwah kang olah-olahan|mawarna-warna mênuhi|Kae Kidang Wiracapa|nyarakkên dhaharanèki||
+
+### 3.
+Wawi dhaharan wong nganggur|sasambèn pangusap amis|ingkang liningan nor-raga|angalap sasênêngnèki|Kidang Wiracapa mojar|mring Dêmang Wirancanèki||
+
+### 4.
+Ing mangke sutanirèku|wayah kula ni Widuri|wus panggih lan Jayèngraga|tan ana winalang-galih|atut dènnya palakrama|punapa sakadarnèki||
+
+### 5.
+Yèn arsa angunduh mantu|yèn wontên panadarnèki|sakarsanta nakmas dêmang|kula jumurung ing kapti|Wirancana aturira|marang kang paman Ngabei||
+
+### 6.
+Lamun pinarêng ing kayun|putranta kalihe sami|kaundhuh mring (ng)Galèk-wulan|sakadar kula nglujêngi|supaya samya uninga|sanakipun agêng alit||
+
+### 7.
+Manawi sagêd anuduh|sung uning ing Pranaragi|kilap kathah kêdhikira|manawi wontên kang prapti|inggih ing dalêm sapasar|pangundhuh kula pangantin||
+
+### 8.
+Ke Kidang Wiracapèku|ngling mring putra Jayèngrêsmi|anak puniku karsanya|rakanta Wirancanèki|sakadare milu nadar|sakadare rèhning siwi||
+
+### 9.
+Jèngrêsmi alon umatur|inggih kadipundi malih|wratipun rèh ing susuta|sawiji amangun krami|botên maibên ing karsa|nging atur kawula kêdhik||
+
+### 10.
+Sarèhning lampah kawlas-yun|nglampahi têdah sudarmi|ngalaya wana wulusan|ngupaya kadang lana nis|kasrakat samarga-marga|labêt kingkining sudarmi||
+
+### 11.
+Ing mangkya têmahanipun|putranta Ki Jayèngragi|sumêne nèng Lêmbuasta|paguting among akrami|saking gung bêrkah paduka|datan sagêd amangsuli||
+
+### 12.
+Panuwun-kula anêngguh|krana lah-ipun kang ngèlmi|lamun nêlaskên ing karsa|tan ana têlasirèki|nuwun pupusên narima|kawula tanta mêndhiri||
+
+### 13.
+Karya wèng-wèng ing pituduh|manawi kita amanggih|halade sudarma ngarang|dadya tan minulyèng dhiri|pintên banggènipun benjang|kawula nêlaskên kapti||
+
+### 14.
+Ing mangke kawula nuwun|yèn parêng kakang Ngabèi|putranta sakaliyan|ywa kongsi lèngsèr sing ngriki|wontêna karsaning kakang|Ngabèi Wirancanèki||
+
+### 15.
+Sumangga sakarsanipun|ngriki kewala prayogi|cêkap sakadare kakang|pikantuk kalih prakawis|asimpên dhatêng kawula|kajad sidêkah dumugi||
+
+### 16.
+Ke Kidang Wiracapèku|Mas Dêmang Wirancanèki|kèndêl ka-awêran sabda|Ke Kidang Wiracapa ngling|punika anakmas Dêmang|karsane anak Jèngragi||
+
+### 17.
+Yèn kongsia sugun-sugun|angundhuh mantunirèki|binêkta mring (ng)Galèk wulan|tan parêng amungna ugi|sidhangsiring mrih paedah|sami cêkapipun ugi||
+
+### 18.
+Pinikir sapênêdipun|ywa suwala ing panggalih|karsane rinta anakmas|sakèdah tan amangêni|kewala nèng Lêmbuasta|sakayun anak Ngabèi||
+
+### 19.
+Mas Wirancana umatur|inggih kalangkung prayogi|sakarsa-karsa yayimas|kawula sampun dumêling|saraosing pangandika|
+
+-
+
+### 19.
+nipun yayi Jayèngrêsmi||
+
+### 20.
+Yèn makatên pênêdipun|kawula anuwun pamit|lajêng badhudhak kewala|anèng ing Lêmbuastèki|tan mantuk ing (ng)Galèk wulan|sami ing Lêmbuastèki||Ke Kidang Wiracapèku|gumujêng awuwus aris|asukur anakmas Dêmang|ing galih suka basuki|tan pae ing (ng)Galèk wulan|lawan ing Lêmbuastèki||
+
+### 22.
+Punapa sakarsanipun|ramèn sasêmbèn pan dadi|kawula lumah sumarah|sumangga anak Ngabèi|yèn karsa mangun kasukan|nèng Lêmbuasta prayogi||
+
+### 23.
+Mas Dêmang Wirancanèku|gumuyu turira aris|lamun kawula kalilan|sakayun-kayun ing ngriki|anyipta sami kewala|ing ngrika lawan ing ngriki||
+
+### 24.
+Anulya nolèh ing pungkur|mring kadang miwah para ri|sarwi alon angandika|sira Mancanapurèki|kalawan Singabancana|Wisancana Wiryanjani||
+
+### 25.
+Lan Mangunjana sirèku|padha muliya mring (ng)Galik|ruktia rumating karya|pawong sanak batur-mami|saluwaking (ng)Galèk wulan|mangsa-bodhoa sirèki||
+
+### 26.
+Galondhong pangarêngipun|apa sangkuling pakarti|têkakna ing Lêmbuasta|manirarsa mangun-kardi|ya ing dalêm pitung dina|ywa kongsi kantu ing kardi||
+
+### 27.
+Lan sira angsunga wêruh|marang kitha Pranaragi|sanak-sanak kang nom tuwa|manawa arsa udani|gawene palunanira|anèng ing Lêmbuastaki||
+
+### 28.
+Nuduha bae kang mungguh|mring wong kutha angsung tulis|ywa cotho karyanta matah|pangrèhmu barang wong cilik|lamun wus samya samakta|angkatna marene nuli||
+
+### 29.
+Srahna mring pamanirèku|Wirabajra sadayèki|tuwin ring (m)bakayunira|patute kang maring èstri|gawanên gamêlaning-wang|pelog lawan carabali||
+
+### 30.
+Iya sawiyaganipun|yèn ana kalalèn mami|rampunga ing sira padha|umatur kang para ari|inggih anuwun sandika|kula kaangkah pribadi||
+
+### 31.
+Sigra samya nêmbah mundur|
+
+(
+
+### 31.
+m)bok Wirancana ngling aris|mêngko ta Mancanapura|mrenea ingsun mamêling|patanènne pulunanta|saisine sadayayèki||
+
+### 32.
+Duwèke pribadinipun|anakira Ni Widuri|usungên mrene sadaya|anèng pêthi bae aglis|pêthiku kalima giwang|lan prabot pawon ywa kari||
+
+### 33.
+Wong lanang wadon sadarum|kang bakal anambut-kardi|lan kang kari tunggu wisma|gilira ing sabên-ari|dene kang bisa lah-olah|kon tugur ana ing ngriki||
+
+### 34.
+Yèn ana kuranganaku|mangsa bodhoa sirèki|amatur Mancanapura|inggih sampun walang-galih|punapa sampun rampunga|
+
+(
+
+### 34.
+m)bakayu pitungkasnèki||
+
+### 35.
+(
+
+### 35.
+m)Bokmas Wirancana muwus|pènjèn barsiyan ywa kari|karana ngêring wisma|lan apa manèh kang kari|lah ya wis sira mangkata|sigra lèngsèr saking ngarsi||
+
+### 36.
+Samya kakapalan mamprung|kang sami lancaran mulih|yata kang kari alênggah|Ke Kidang Wiracapèki|ngandika mring Wirabajra|wong abagor iku mèh wis||
+
+### 37.
+Hèh Wirabajra sirèku|ngundanga dhalang kalithik|si Mênthak apa nèng wisma|kang rayi amatur aris|inggih wontên pagamêlan|tumut nabuh dangunèki||
+
+### 38.
+Lah konên mundhut dèn-gupuh|kothak gawangane nuli|mêngko bubaring topèngan|banjur trêp gawanganèki|ywa kasuwèn kantunira|enggal lêkasa ngalithik||
+
+### 39.
+Ingkang liningan agupuh|gya panggih dhalang kalithik|dhinawuhan kinèn mayang|Mênthak tur sandika nuli|ngambil pakothakanira|tan adangu nulya prapti||
+
+### 40.
+Wau kang ambagor tapuk|praptèng wawêkasanèki|gêndhing manyura Prit-cowang|Ki Nayakênthi ngêthaki|suwuk gya muni kêrêpan|wong nonton bubaran mulih||
+
+### 41.
+Ing wanci surya sadhawuh|nuli trap gawangan ringgit|tinilam sri sinampiran|ing wastra kêling mawarni|cindhe tigasan sabunan|lan polos solok palangi||
+
+### 42.
+Samboja kalawan pêlung|mbutan limur caculin|wus rumat amajang-giwang|dhalang gya amanggung ringgit|pra bagor pasrah busana|Wirabajra kang nampèni||
+
+### 43.
+Tiniti jangkêping etung|ngaturkên ing Widaryati|tinampan sadayanira|sigra kinèn angisisi|Kae Kidang Wiracapa|nimbali Ki Nayakênthi||
+
+### 44.
+Kang tinimbalan agupuh|mrih cêdhake ngambil picis|tan dangu katuring ngarsa|pinundhut marang ngabèi|lah wang iki Wirabajra|paringna si Nayakênthi||
+
+### 45.
+Nulya pinaringkên gupuh|matur nuwun Nayakênthi|Jèngraga nambung wacana|hèh sira Ki Nayakênthi|si Wukir lawan si Laba|yèn wus aso olèh guling||
+
+### 46.
+Nuli kon bali malêbu|umatur Ki Nayakênthi|sandika lèngsèring ngarsa|dhinawuhan kang tinuding|kalihe matur sandika|nulya pinaringan bukti||
+
+### 47.
+Lawan saniyaganipun|ingingonan sadayeki|warata tan ana kurang|warêg-warêg malah luwih|akathah ingkang binarkat|luwaran kabèh kang bukti||
+
+### 48.
+Pra bagor luwaran mêtu|kang ngirit Ki Nayakênthi|myang kang nonton mèlu bubar|samya ngrubung Laba Wukir|wong tuwa randha wulanjar|parawan myang rare alit||
+
+### 49.
+Si biyang tumut ngarubung|ngurung-urung Laba Wukir|baya bangêt sira sayah|ting carêluk Laba Wukir|kanan kering wuri ngarsa|hèh si Laba hèh si Wukir||
+
+### 50.
+Kèh wèwèh kambi lumaku|mring Laba lawan si Wukir|ting jarawil sêm-èsêman|mrih ngalap Laba lan Wukir|kongsi linut marang wisma|yata kang amanggung ringgit||
+
+### 51.
+Gya talu kêrêpan cêngkung|anggantêr kêmpulirèki|wus antara talunira|kêndhange ngaplak nyalahi|wus suwuk patalunira|Ke Kidang Wiracapèki||Alon dènnira amuwus|hèh sira Wirabajrèki|dhalange cothèk si Mênthak|nuli kon lêkas ngalithik|lêlakone Damarwulan|nulya dhinawuhan aglis||
+
+### 53.
+Umatur sandika gupuh|Ki Mênthak nulya ngêthaki|gêndhing Kabor kang minulya|pangarêp gêndèr lan suling|nora nganggo gambang rêbab|wus carane wong ngarucil||
+
+### 54.
+Kalangkung asri dinulu|tontonane kang muryani|adi-adining tanggapan|tan kadya wayang Karucil|tinimbang lan wayang Purwa|maksih alangên karucil||
+
+### 55.
+Jêjêre ingkang cinatur|Prabu-kênya Majapahit|Ki Mênthak lungguh andhangak|leyangan kothak ngêthêki|angêrêpakên gamêlan|amungguh panjaturnèki||
+
+### 56.
+Carita jêjêring ratu|karta-kartining nagari|myang panjang-punjunganira|tan wus ujaring Kalithik|Kae Kidang Wiracapa|ngandika mring Jayèngrêsmi||
+
+### 57.
+Lan maring Kulawiryèku|anakmas Ki Jayèngragi|sami-sami tatanggapan|yèn pinrih raosing ringgit|kaot lawan ringgit crêma|lilaban raosing ngèlmi||
+
+### 58.
+Miwah jawi lêbêtipun|nging tan ilang namanèki|wayang lawan wawayangan|pulas lan têgêsing ringgit|tan kadi wayang conthèkan|Krucil binêcik agampil||
+
+### 59.
+Jèngrêsmi mèsêm tumungkul|Ki Kulawirya ngangsêgi|sadaya samya nor-raga|Asradênta lan Nuripin|myang Ke Dêmang Wirancana|anêsêg dènnira linggih||
+
+### 60.
+Jayèngrêsmi lon umatur|liripun kadi-punêndi|Ki Wuragil nambung sabda|inggih paduka jarwani|Ke Kidang Wiracapa jar|lah ênggèh adhi Wuragil||
+
+### 61.
+Kang kinarya wayang-kayu|mila ran wayang karucil|têgêse cêthèk ngalela|bangsa karucil pan cilik|dene tanggaping wibawa|tanggaping kawula alit||
+
+### 62.
+Krana tan mawi sisiku|wisma tan ana winingit|malah lumaku katona|duwèke jroning wismeki|sabab amêdhar kêkêran|tan warana aling-aling||
+
+### 63.
+Yèn mungguh dhauping ngèlmu|kakekat makripat nênggih|angegla pangèglèhira|tan pae (n)jaba jronèki|pangulataning Hyang Suksma|angganya angayu-aking||
+
+### 64.
+Ngalithik wayang awuyung|tan kêlir saraking Nabi|akêlir jagad gumawang|nora liyangan pra siddhi|angêkakakên priyangga|tan anggayuh Maha Sukci||
+
+### 65.
+Nucèkkên ing dhawakipun|panglelanira Hyang Widdhi|tan papeka ing pangegla|sêmune kayu ngrakêti|sipate kayu tulbêla|rokin pikadimbi bakin||
+
+### 66.
+Puniku pasêmonipun|kakekat kang muslim suci|Ki Kulawirya alatah|nora jamak kang ngabèi|wus nora kewuhan murat|barkat ngulama priyayi||
+
+### 67.
+Nuripin sru nêngan muwus|kang Sradênta wontên angling|bab ningali wong andhalang|pan ilang amalirèki|kawandasa ri lamanya|ujare kang sami modin||
+
+### 68.
+Nak dhalang lan anak kaum|nak dhalang dèn popoyoki|tutur mring bapakne dhalang|ki dhalang ayun pinanggih|apan kang aduwe ujar|anulya samya papanggih||
+
+### 69.
+Ki dhalang lawan ki kaum|kaume adrêng ngaranni|sadhengah wong nonton wayang|nir ngamale patpuluh ri|ki dhalang nauri ujar|witning wong tan nonton ringgit||
+
+### 70.
+Nir ngamale sajêgipun|tan ana wangênanèki|puniku kang Asradênta|liripun kadipunêndi|ki Asradênta anjola|ngling wikana tan udani||
+
+### 71.
+Dandanan pancèn wong cubluk|kang botên-botên ingangling|Kae Kidang Wiracapa|ngling paron ko(k) wuwus Ripin|Ki Nuripin wuwusira|gumuyu Kulawiryèki||
+
+### 72.
+Hi hi Nuripin umatur|calak cêmplak anyunyulik|madêr pèthèk mudhik dhawak|Ki Kidang Wiracapa ngling|pan sarwi gumujêng suka|dhi Ragil lêrês pun Ripin||
+
+### 73.
+Botên wontên sikunipun|tiyang takabuling ngèlmi|barkat santri Wanamarta|gumêgêg rasaning ati|ambakna jar balasaran|anggathok pilih kang uning||
+
+### 74.
+Tan anèng (ng)gonning pangulu|kang sira takokke Ripin|
+
+ê
+
+### 74.
+nggonne nèng santri moyang|kang wuyung marang Hyang Widdhi|manira duga kewala|kang sira ucap Nuripin||
+
+### 75.
+Wong anom wajib (ng)guguru|ing ngèlmu kang lukak-lukik|mrih mustakiking Pangeran|mangkene kiraku Ripin|wong anyêgah nonton wayang|nir imane sajêgnèki||
+
+### 76.
+Tanpa dadi ngamalipun|sabab imane wus ênting|bêtèke anonton wayang|kêdah wruh cêrma lan cêrmin|Ki kulawirya alatah|myarsa mojare ngabèi||
+
+### 77.
+Kang myat sadaya andhêku|Ke Kidang Wiracapa ngling|puniku dhi Kulawirya|sasurupane kang ngèlmi|pêrlune anonton wayang|kêdah wruh cêrma lan cêrmin||
+
+### 78.
+Cêrmin sucining Hyang Agung|gaib langgênge pribadi|lambar jatining manungsa|sarupa lan rupanèki|hakiki tigang prakara|Allah Rasul Muhamadi||
+
+### 79.
+Tri prakara pan wus suhul|dhadhalang myang Maha Sukci|Rasul kang anonton wayang|Mukhamad kang anèng kêlir|solah bawaning ki dhalang|suhuling dhalang Mah Sukci||
+
+### 80.
+Suhule ingkang andulu|mring dhadhalang saha ringgit|ki dhalang karya kaulan|ing dalêm sawiji ringgit|tinimbuh saking pangaksa|mulyane ringgit ing nèksi||
+
+### 81.
+Mulyane Jêng Mukhamaddun|kalawan rasullilahi|wus tan kêna pinaeka|sabitah wabin kabinil|sawêg awagan kewala|langkung manjade pribadi||
+
+### 82.
+Lungiding graitèng kalbu|kabuka kabuling ngèlmi|bedane wong nonton wayang|nir ngamal patpuluh ari|punika gagapan kula|dhi Ragil Kulawiryèki||Yèn datan pisan andalu|ing cêrmin wayang mahsukci|dadya nimpanging graita|tan manjad maring kajatin|andêlêng cêrma walulang|gudèl gudhig kang pinilih||
+
+### 84.
+Kinarya wayang binagus|pinarada cinampurit|carita Buda kinandha|marono paraning ati|iya patangpuluh dina|ngamale kang nora dadi||
+
+### 85.
+Puniku ingkang andalu|makatên halading Kadis|kang tan kudu dêlêng wayang|Mukhamad Rasullolahi|yêkti cêpak imanira|ing donya prapta ing akir||
+
+### 86.
+Ke Kidang sarwi gumuyu|apa mangkono Nuripin|umatur ingkang liningan|duga dalêm tan udani|Kae Kidang angandika|ya gajêg mangkono Ripin||
+
+### 87.
+Tuturing si Genjongwaru|
+
+-
+
+### 87.
+dhoyong kang tutur ing kami|Ki Kulawirya alatah|gêr ginuyu sadayeki|ngling malih dhi Kulawirya|mungguh panglêpasing budi||
+
+### 88.
+Tan kenging kinaryèng kayun|yumananing ati sukci|dhaupe kalawan mangsa|palêthèk wijiling wiji|alambar lawan nugraha|mijil kalawan pribadi||
+
+### 89.
+Nanging ta datan tartamtu|kang bisa marang kajatin|namung kewala surupa|tinimbang lan tan udani|sadaya-daya canthèla|tan cuthêl kawruhing ngèlmi||
+
+### 90.
+Tan wontên kang bisa matur|wau Ni Rara Widuri|dangu kang sami rarasan|datan pinirsa samênir|tansah sasmita ing priya|iriban liringan liring||
+
+### 91.
+Jênthik nguthik-uthik pupu|pupule nèng tilamsari|amajijing sêkar sêdhah|sarta ngombe andalidir|netra rêmu kaca-kaca|mêjên dènnya wulangan sih||
+
+### 92.
+Jèngraga patute kidhung|tan pati tanggaping liring|Kae Kidang Wiracapa|uning kasuwênging pikir|mèsêm sinamun wacana|lan kang putra Jayèngrêsmi||
+
+### 93.
+Prayogi samiya maklum|mring arinta Jayèngragi|radi kasupèn ing mangsa|kaecan kojahe Ripin|kabèh mèsêm linèjêman|Kidang Wiracapa angling||
+
+### 94.
+Lah suwawi anakbagus|kalihe sang pinangantin|rèrèh anèng pagulingan|mèsêm umatur Jèngragi|lah inggih mangke kewala|sawêg myarsa mirat ngèlmi||
+
+### 95.
+Ki Wiracapa gumuyu|angling sarat mangke malih|kula sadaya alinggar|marang ing paningrat linggih|Ni Widuri sumarawang|tuntung lungiding abranti||
+
+### 96.
+Jèngraga mèsêm ngalap hyun|Rara Widuri kinanthi|tumama ring pagêbêran|pêdhak èstri nangkêp samir|kang kulinèng pakasutan|samya sêdhêngiing mangun-sih||
+
+### 97.
+Kang rayi nulya sinambut|rinungrum ingarih-arih|lir bramara nguswa sêkar|mangungsir maduning sari|mring sêkar tangkêping padma|kakung mrih adrênging rêsmi||
+
+### 98.
+Dyah mèsêm wastra kalungsur|ngalela wêntise kalih|andrawila maya-maya|ingawêran otot wilis|kadya gadhing rinampêlas|kakunge sangsaya ngudi||
+
+### 99.
+Ni rara kamêndir ing hyun|(ng)garonjal nêngkah jaja ngling|angêsah-êsah sêsambat|tênagane nyanyamari|kawula dèrèng kuwawa|kang antèr kewala ugi||
+
+### 100.
+Jèngraga mèsêm lêbda rum|tan bisa sarèh ngong yayi|saking byat mulat warnanta|tan saranta ing pangamrih|lir tan wruh sarasaning dyah|kaswaswa sruning sirèki||
+
+### 101.
+Dene manisira masku|gawe baliwur tar ririh|pan sarwi amriyêmbada|pinolah apongah-pangih|komêt binaut asmara|marapuhira maripih||
+
+### 102.
+Tan kapalang pulanging hyun|tinimpang tan têping titih|tètèh pinatuh ing priya|anggrus surasaning ati|lir pendah dhêmpo kinumba|parêng puk-pyurira kalih||
+
+### 103.
+Antara rapuhira wus|luwaran kang andon rêsmi|kang rayi binêkta marang|pahèran samya susuci|nuli maring pagêdhongan|busana salin wastra di||
+
+### 104.
+Pinantês panganggenipun|wau Ni Rara Widuri|ing sinjang cindhe puspita|tigas sabuk dhasar wilis|kasmêkan nglungjiwa bang|pinrêmas Kumudawati||
+
+### 105.
+Gêlung sêdhêng pinapatut|lulungsèn madya tinitih|capaka lawan ronnira|kalpika intên mirah brit|Jèngraga nyamping berawan|paningsêt cindhe bara sri||
+
+### 106.
+Sarta agêgombyok dhuwung|kalpika rukmi galigin|wida jênar gagêbêgan|Ni Widuri kang ngladèni|sawuse samya busana|Jèngraga arsa mring (n)jawi||
+
+### 107.
+Rara Widuri tan payun|ambondhèt marang ing laki|tan kawasa sah saknatya|drêng lumêkêting tilamrik|Jèngraga datan lênggana|kinanthi Rara Widuri||
+
+### 108.
+Tumama maring tilam-rum|anutug pasiyaning sih|kalihe nora kuciwa|dhasare Rara Widuri|kênya birai katuwan|katêmbèn rarasing rêsmi||
+
+### 109.
+Ni rara upaminipun|lir lapa amanggih bukti|purwaning karsa angangah|tan êngah mahyun ngarêsmi|mring ratri rinambah siyang|tan wus andudukwuluhi||
+
+### 608
+Mêgatruh 1.
+
+### 608
+Tan winuwus kang andon asmara lulut|nêlaskên langêning rêsmi|yata kang samya alungguh|Ke Kidang Wiracapèki|wibawanira katongton||
+
+### 2.
+Pan tinarap sakathahing anak putu|santana myang magêrsari|Ke Kidang Wiracapèku|talêre tuwa pribadi|kabèh wong Trênggalèk kono||
+
+### 3.
+Awu ngakang tuwa maman ngaki buyut|mila sadaya samya jrih|ambêg ambandara guru|Ke Kidang Wiracapèki|angling mring Wirabajra lon||
+
+### 4.
+Sanak-sanak kang jagong paran sih lungguh|atata wus padha mulih|Ki Wirabajra umatur|inggih dèrèng wontên mulih|samya rèrèh ngaso-aso||
+
+### 5.
+Kae Kidang Wiracapa lon amuwus|nak Wirancana Ngabèi|sun-parnah panggènannipun|nèng gandhok wetan prayogi|manira nèng gandhok kulon||
+
+### 6.
+Kang liningan tan lênggana matur nuwun|ngling malih mring Jayèngragi|lamun pinarêng ing kayun|anakmas lan adhi Ragil|anèng wisma gung kemawon||
+
+### 7.
+Panggêdhongan kilèn wus miranti iku|kang putra umatur aris|amba kewala nèng tajug|ajênêk tan mutawatir|kawula nuwun nèng suro||
+
+### 8.
+Lah dhi Ragil bae nènga (n)dalêm agung|nèng gêdhong kilèn (n)dhèwèki|Ki Kulawirya gumuyu|yèn parêng kakang Ngabèi|nèng (n)jawi wisma kemawon||
+
+### 9.
+Panggêdhongan kilèn wisma griya kampung|kakang kang kula ênggènni|Ke Ngabèi alon muwus|inggih sumangga dhi Ragil|nulya kang rayi tinudoh||
+
+### 10.
+Wirabajra omahe gamêl kang kidul|rêsikana kang abêcik|wèhana pandhapa kampung|patutên kang sarwa rêsik|gêbêrên kobong paturon||
+
+### 11.
+Dèn-samêkta uwisna bakdane Luhur|kang liningan sandika glis|nuduh mring wong baturipun|nora kèthèr traping kardi|tan ucapkên nulya dados||
+
+### 12.
+Kae Kidang Wiracapa alon muwus|dhi Ragil Kulawiryèki|mungguh ngagêsang puniku|ganjaran titahing urip|rong prakara pênêd awon||
+
+### 13.
+Kamurahanira Hyang Kang Maha Luhur|ginanjarkên manungsèki|dhi Ragil sasaminipun|topèng sakêpêk lirèki|linênggorke wong sawiyos||
+
+### 14.
+Awon pênêd wasesa pamilihipun|kêdhok bapang miwah panji|yêkti beda solahipun|jogède sawiji-wiji|ana ruruh ana lonyo||
+
+### 15.
+Apan anut tatapuk panjogèdipun|jogèd-jogèding aurip|ati kang minangka tapuk|punapi karêping ati|yèn ati kudu angêdhok||
+
+### 16.
+Pasthi sarwa awon solahing tumuwuh|yèn têlatèn têkèng pati|sabab dhêmêne ginuyu|wus tan duwe malih-malih|wus karêmane angregol||
+
+### 17.
+Lan malihe tapuk Panji kang abagus|jogède angrêspatèni|saprabotira linuhung|akèh kasmaran kapengin|mring kang manji bagus anom||
+
+### 18.
+Kang puniku kabênêr pamilihipun|abagus putusing budi|wêkasane dadi ratu|beda budine ngacumbrik|dhêmênane dadi kêdhok||
+
+### 19.
+Kulawirya alatah dènnya gumuyu|nora jamak kang ngabèi|(ng)gledhahi rasa winuwus|tan ana lirwa samênir|kabênêran kabèh mencok||
+
+### 20.
+Jayèngrêsmi umèsêm anor tumungkul|kaduga raosing ngèlmi|tan sulaya surupipun|Ki Kulawirya ngling malih|kakang kawula tatakon||
+
+### 21.
+Nuwun maklum bangsa crêmêd bangsa saru|wontên kaol mutawatir|yèn wontên tiyang andalu|marang prêjining pawèstri|mupangat utawi anon||
+
+### 22.
+Pan sinami sawiji tangat ing dalu|malah-malah anglangkungi|paedah ganjaranipun|wong kang aningali prêji|asor wong donga andongo||
+
+### 23.
+Kadipundi liripun basa puniku|anuwun jarwa sayêkti|Ke Kidang Wiracapèku|kang punika adhi Ragil|solahing wong kang kinaot||
+
+### 24.
+Inggih yêkti gêng pedahe kang puniku|yèn sagêd aningkêp budi|ngilangakên melikipun|
+
+ahlining wong wus otati(?)
+
+### 24.
+|lamun aningali gêmbok||
+
+### 25.
+Tênangsubbe blas lawan suruping ngèlmu|ningali rupaning pêrji|asli bangsa jaman iku|arupa kulit lan daging|kaelokaning Hyang Manon||
+
+### 26.
+Kita punika tan liyan saking ngriku|pintên longgaring kang kori|tan mantra-mantra yèn mungguh|dadi dadalaning jalmi|dene ta kaya mangkono||
+
+### 27.
+Panrimaning cipta ngundhaki têpakur|
+
+-
+
+### 27.
+rira maring ing Hyang Widdhi|malah titahing Aluhung|ngupaya wong ayu kining|ingkang bêsus mèngdrong-mèndrong||
+
+### 28.
+Yèn katêmu dhewe anujoni turu|kapati dènnira guling|liningkap tapihirèku|dèn-kongsi nglela kaèksi|winêngkang pupune karo||
+
+### 29.
+Amrih lêga bisa ngênani kadalu|(n)jaba jro sawêngkonèki|supaya tamat dinulu|anulya dipun-dhodhoki|kakung anglukar wastra lon||
+
+### 30.
+Warastrane cinêlakkên mrih tumanduk|nging datan anggêpok pêrji|antarane patang nyantun|kongsi kangêtèn bêtèking|kasumukaning gagêmbok||
+
+### 31.
+Suprandene warastranira anglèlur|tanpa krêkat anglawani|wong lanang dènnya angadu|duwèke kalawan pêrji|kewala mungkrêt anglèntroh||
+
+### 32.
+Sabab dene amuntu murwaning kalbu|kabuka kabuling budi|tan sakuthu maring kuthuh|angèsthi trusthaning ati|cinoba nora kèledhon||
+
+### 33.
+Angênêngkên pungkur tapakuring kalbu|dènnya myat pêrjining èstri|padha lawan kayu watu|gatraning prana kaèksi|kadya lènging orong-orong||
+
+### 34.
+Namung pangêlênging budi marang ngèlmu|kang rungsit wingit awêrit|angèl-angèling pandulu|datan kadi dalan Dalil|luput tanggape katlangson||
+
+### 35.
+Yèn katlangso murungakên barang jinum|puniku kang tan ngobêri|narik kèksining pandalu|ing dalêm donya puniki|cinipta nora kinaot||
+
+### 36.
+Kang makatên dhi Ragil kandhanganipun|tekade ahli otadi|sing samba ing tumuwuh|kang sarwa lon dèn-karêmi|kang wus tibambêg mangkono||
+
+### 37.
+Paedahe sami lan tangat ing dalu|ngibadah elok pangèksi|batal karam sinakuthu|amangeran kupur kapir|suci sajroning carobo||
+
+### 38.
+Tan sêdya wong winongwong nora angingus|pan wus ajamak pribadi|yèn wontên tiyang kadyèku|kang dika catur anênggih|puniku kiyase kaos||
+
+### 39.
+Kulawirya agèdhèg sarwi gumuyu|anandhês têmên kang bèi|tan ana nimpang satêngu|sarwi sasmita Jèngrêsmi|kang putra mèsêm nor lunggoh||
+
+### 40.
+Anauri paman pan inggih saèstu|tan wontên kuciwèng ngèlmi|sampurnaning pasang surup|pamuwuse Jêng Kiyai|putus salire pakewoh||
+
+### 41.
+Datan wontên kang ribêt murading ngèlmu|sarwa jayar ngalêjari|ing manah mêndhak atungtum|kapèncut sagêd nglampahi|kang kadya kang elok-elok||
+
+### 42.
+Anauri Ki Ragil Kulawiryèku|ya ta lah kakang ngabèi|amadhangkên ing balilu|pamudhare murêd gampil|pamucunge nora elok||
+
+### 609
+## Pocung  1.
+
+### 609
+Ya ta wau kang sami gunêman ngèlmu|siyang wancinira|têngange mèh bêdhug nênggih|kae Kidang Wiracapa lon ngandika||
+
+### 2.
+Hèh sirèku Wirabajra dènnya gupuh|sêdhêng mamadhangan|barênga ngingon-ingoni|sanak-sanak dhadhayoh sadayanira||
+
+### 3.
+Hèh pangulu matura marang nyaimu|amundhuta dhahar|manira iki wus ngêlih|kang liningan samya mundur gagancangan||
+
+### 4.
+Ki pangulu maring ing wisma umatur|amundhut saosan|marang Nikèn Widaryati|nulya ingkang dinuk anuduh pawongan||
+
+### 5.
+Wus tinuduh anampa rampadanipun|angirit ing ngarsa|sira Nikèn Widaryati|ingkang putra (m)bokmas Dêmang Wirancana||
+
+### 6.
+Sêliripun pipitu samya yu-ayu|sinami prabotnya|anyamping garingsing ringgit|sami kêmbên kêmbangan panji krurungan||
+
+### 7.
+Praptèng ngayun dhaharan kinèn anglungsur|sinungakên marang|Asradênta lan Nuripin|miwah modin mintên pratuwa sadaya||
+
+### 8.
+Kang bubucu sinaosakên ing ngayun|nèng panjang giri bang|sêkul golong pêcêl-pitik|kinatêmbing rampadan ulam mawarna||
+
+### 9.
+Dhèndhèng gêpuk gorèngan êmpal puk duduh|kalêpon sêrêgan|age sujènan kêkisi|dhèndhèng ati kêlawan dhèndhèng alidhah||Abon rêmus ragi rêmpah srundèng krupuk|sambêlgorèng jrohan|lombok kêncêng lawan pêtis|pindhang antêp barongkos ayêm manjangan||
+
+### 11.
+Jangan bubus padhamara lawan mangut|sambêl liwêt miwah|pêcêl pitik jangan mênir|lambang lêbêt opor bèbèk lawan banyak||
+
+### 12.
+Bècèk wêdhus basêngèk gorèngan manuk|sangkêp kang lalaban|sadayanya wus sumaji|angandika Kae Kidang Wiracapa||
+
+### 13.
+Abênêr sun kèlingan marang sutamu|bagus Jayèngraga|pangantyan aturana glis|Nikèn Widaryati umatur ing raka||
+
+### 14.
+Ragi rikuh sih wontên lêbêt tilamrum|lamun ka-alipan|lan wayah-dalêm samya rip|mapan sampun kula caosi priyangga||
+
+### 15.
+Lingira rum lah iya uwis ta sokur|rinukti priyangga|ngling malih angacarani|lah suwawi ing ngriki sami wijikan||
+
+### 16.
+Sira iku kêmbula lawan adhimu|Wirancana pisan|Asradênta lan Nuripin|donganana dhisik salamêt sabrayat||
+
+### 17.
+Ki pangulu gupuh andongani Rajuk|wusnya ingaminan|Ke Kidang Wiracapa ngling|Wirabajra ing pandhapa pa wus rêma||
+
+### 18.
+Matur sampun lah uwis payo awisuh|gupuh kang liningan|tuturuh (n)dan lêkas bukti|pan warata kang lungguh parêng anadhah||
+
+### 19.
+Apikantuk dènnya royom akêkêmbul|nutug andharannya|dènnira adhahar sami|Kae Kidang Wiracapa turuh asta||
+
+### 20.
+Gya sadarum kakobok sarêng awisuh|ambêng cinarikan|kinèn maringkên pamburi|para mantên pra modin tuwa sadaya||
+
+### 21.
+Wus ingundur sadaya rampadanipun|rêsik tinêbahan|nulya dhadharan mangarsi|wowohan kang adi-adi myang olahan||
+
+### 22.
+Alon muwus Ke Kidang Wiracapèku|wawi ta punika|nyamikan pangusap amis|kang liningan matur nuwun anor-raga||
+
+### 23.
+Sarwi mundhut nyamikan sasênêngipun|wowohan myang jadah|sinambi sawangan angling|Ki Wuragil Kulawirya pon lingira||
+
+### 24.
+Kulanuwun wontèn kaol awon nganggur|kadya bobocahan|sruwang-sruwêng wontên angling|kang tinakèkakên pan ratuning gampang||
+
+### 25.
+Lawan ratu-ratuning angèl puniku|kula kadhêdhêlan|tinanya tan angrampungi|Kae Kidang Wiracapa mèsêm mojar||
+
+### 26.
+Dene wuwusing jalma ingkang kadyèku|nanging kaol kêndhang|tan wontên ingkang ngrampungi|sabên-sabên takèn ingurugan ujar||
+
+### 27.
+Sarwa dudu sakèhing panjawabipun|kang takon tan trima|dèrèng kapacangan budi|yèn ing kula piyambak Ki Kulawirya||
+
+### 28.
+Wuwus ratu-ratuning gampang puniku|anunutuh ujar|kang nacad kang mamaoni|sabên jalma bisa nutuh ananacad||
+
+### 29.
+Mring lyannipun tan wontên pangkalanipun|agampang kewala|tan kalawan dèn-niyati|wong anutuh maoni gampang-agamblang||
+
+### 30.
+Sababipun tan mawi bandha pakewuh|pan anglêr kewala|tan rubêt ing ika-iki|Kulawirya alatah gumuyu suka||
+
+### 31.
+Sarwi matur kang satunggalipun wau|ingkang winastanan|ratuning angèl puniki|kadipundi kakang ngabèi artinya||
+
+### 32.
+Alon muwus Ke Kidang Wiracapèku|adhi Kulawirya|ratuning angèl sayêkti|inggih wong kang nutuh maoni nanacad||
+
+### 33.
+Kang winaun kang cinacad kang tinutuh|de kang winaonan|maoni pribadi nèki|anacada nutuh sarira priyangga||
+
+### 34.
+Ananutuh nacad marang liyanipun|mêmoyok saminya|marang ing sasami-sami|dadya anjalomprong mring ratuning gampang||
+
+### 35.
+Angèlipun mamoyok maoni nutuh|marang sariranya|kang punika adhi Ragil|tan wontên kang sagêd nacad dhawakira||
+
+### 36.
+Dadya ratu ratuning angèl puniku|wong anutuh jiwa|nacad sarira pribadi|yèn wontêna bisa-a nacad sarira||
+
+### 37.
+(ng)Gih puniku kandhangane jalmu luhung|calon pinardika|ginantungan mulyèng dhiri|beda wong kang mêmoyok marang sasama||
+
+### 38.
+amamaun ngala-ala angguguyu|wasis ananacad|moyok nutuh mamaoni|suwe-suwe kêna wawalêsan cacad||
+
+### 39.
+Têmahipun sarirannya nora cukup|kaniran sabarang|kècèr copèt uripnèki|pan wus nora bisa anjangkah mardika||
+
+### 40.
+Yèn kablusuk ucul pan dadi wong gêcul|amancal agama|agamane ngisin-isin|nora bisa kalèpètan ing tyas tama||
+
+### 41.
+Nora kètung kadung sandhange garumpung|wus kadya kamuktyan|dènnira amêmaoni|marang liyan tur ta awake angambak||Nganyuk-anyuk moyok prandene nanutuh|mring wong kasisipan|ingkang makatên dhi Ragil|kêdah yun wruh gampang angèle nanacad||
+
+### 43.
+Sru gumuyu Ki Kulawirya angguguk|gèwèk kagawokan|gumuyu Ki Jayèngrêsmi|guyunira ingampêt èsmu kaduga||
+
+### 44.
+Cathêtipun ing wardaya langkung surup|kapasuking driya|sangsaya angênir kapti|sarwi nonton santosane tekadira||
+
+### 45.
+Ya ta wau ing wanci siyang wus bêdhug|pra tamu parapat|mêlingkên Wirabajrèki|samya nelakakên tur pamit sadaya||
+
+### 46.
+Wusnya katur kang pra tamu pamitipun|sayahing jagongan|Ke Kidang Wiracapèki|angandika mring ari Wirabang Wirabajra||
+
+### 47.
+Sadayèku sanak-sanak kang yun mundur|kabèh tuturana|ing dalêm sapuluh wêngi|konên bali anjagong dalu kewala||
+
+### 48.
+Esukipun ywa susah pamit umantuk|kang liningan sigra|sadayanya dèn-dhawuhi|samya saur-manuk umatur sandika||
+
+### 49.
+Kang pra tamu samya bubaran sadarum|mulih sowang-sowang|Ke Kidang Wiracapèki|angling malih anakmas dhi Kulawirya||
+
+### 50.
+Sêdhêngipun manjing wêktu salat Luhur|umatur agêpah|inggih prayogi suwawi|owêl lamun kakirên awêktu salat||
+
+### 51.
+Nulya gupuh Ke Kidang Wiracapèku|Jayèngrêsmi lawan|Ki Ragil Kulawiryèki|Ki Nuripin Asradênta modinira||
+
+### 52.
+Marang tajug samya salat wêktu Luhur|kang kèri alênggah|Mas Wirancana Ngabèi|lan kang paman Wiranjana Wirangkara||
+
+### 53.
+Katrinipun Wirabajra samya lungguh|tan na ahli salat|Mas Wirancana ngling aris|kadipundi paman parigêling karya||
+
+### 54.
+Samya matur inggih pasaja tinurut|karsane ramanta|angrojongi karsanèki|punapa saraosing tyas dhinatêngan||
+
+### 55.
+Naur wuwus lah inggih kantênanipun|nanging wêling-kula|dhumatêng ing paman katri|lamun kula nêdhakkên sukaning driya||
+
+### 56.
+Paminipun sadhèrèk wontên kang rawuh|sanak bangsa praja|wuwuron sukaning galih|ing pratingkah kilap punapa pun paman||
+
+### 57.
+Kang puniku manawi karêngon siku|mangsa borong paman|(ng)gènnira mamrih basuki|saking dene kadhar ngalujêngi suta||
+
+### 58.
+Ngong andulu mring putra andika bagus|tambuh raosing tyas|sadarbe kula wong miskin|sawontêne kula tan rumaos gadhah||
+
+### 59.
+Sakalangkung trêsna-kula marang mantu|inggih ta lah paman|puniku putranta kalih|ingkang sêpuh Jayèngrêsmi Jayèngraga||
+
+### 60.
+Sami sunu ing ulama sampun mashur|karêmênanira|kang sêpuh ngulama yêkti|ingkang anèm ragi sêngsêm kaberagan||
+
+### 61.
+Lèjêmipun lan kula anunggil kayun|kang paman samya jar|kados-kados inggih nunggil|yèn solahe Jèngraga solah nor-raga||
+
+### 62.
+Sru gumuyu Mas Wirancana lingnya rum|inggih kasinggihan|mantu-andika Jèngragi|datan pati mèmpêr yèn putrèng ulama||
+
+### 63.
+Pantêsipun dadi mantuning tumênggung|wasis wiryèng praja|mèsi langêning kamuktin|yèn anggambuh tan mambu trahing ulama||
+
+610 Gambuh 1.
+
+### 63.
+Dangu dènnya amuwus|yata ingkang anèng ing tilam rum|Jayèngraga lawan Ni Rara Widuri|kang tansah apulang-lulut|nutug larasing langên-(n)don||
+
+### 2.
+Tan paja muga tuwuk|têp-antêpan ing asmara nutug|ing latri wus kaping tri dènnya pulangsih|ing siyang mangkya mawantu|ping tri têkan wêktu Luhor||
+
+### 3.
+Jèngraga ngandika rum|atangia anggèr mirahingsan|ing wêktu Luhur wus andungkap akir|ni rara maksih wulangun|saking katêmbènirandon||
+
+### 4.
+Ni rara srênging kalbu|prawan tuwa akir mangsanipun|kawêwahan panggêlaking budi sisip|katurutan karsanipun|mulane amot ambèngkot||
+
+### 5.
+Tan ana dharan ketung|mung cumbana lêlambaning kayun|kala-kala aja sah ing siyang ratri|manggunga bae salulut|karêm kamoran anglamong||
+
+### 6.
+Ni rara rinangrungrum|ingarih-arih patanginipun|rinarêpa ni rara wus anuruti|kinuswa-kuswa ing kakung|luwaran dènnya karongron||
+
+### 7.
+Wau ta kalihipun|mijil saking pagêbêranipun|dyan kinanthi marang patirtanirèki|linadèn parêkanipun|wusira susuci karo||
+
+### 8.
+Mring pagêdhonganipun|apasatan wastra di kang mungguh|Ni Widuri awasis ngladèni laki|kang ibu myang êmbahipun|myat ingkang mantu rurukon||
+
+### 9.
+Kalangkung sukèng kalbu|pasiyanira rukun aruntut|Nikèn Widaryati angandika aris|
+
+(
+
+### 9.
+m)bok Wirancana agupuh|tata-a dhahar ing kono||
+
+### 10.
+Kang liningan agupuh|nuduh angrukti rampadanipun|sarwa eca ulam-ulaman mawarni|sadaya lumadyèng ngayun|Widaryati ngandika lon||
+
+### 11.
+Aturana anakmu|nulya nuduh mring ponakanipun|sigra matur mring sang ro kinèn amijil|kang ingaturan kerit wus|praptèng ngarsa tata lunggoh||
+
+### 12.
+Widaryati amuwus|anakmas Dêmang Wirancanèku|lah ing ngriki kakêmbulan lan putrèki|kang liningan matur nuwun|sumangga ngriku kemawon||
+
+### 13.
+Nulya malih amuwus|wawi anakmas sami tuturuh|Jayèngraga agêpah dènnira wijik|dhahar kêmbulan katêlu|Widuri tan purun royom||
+
+### 14.
+Jèngraga mèsêm muwus|payo yayi wasisan akêmbul|ingkang ibu lan kang êmbah ngatak bukti|aywa sumêlanging kayun|marang bojomu kang akon||
+
+### 15.
+Ni Widuri arikuh|tansah sasmitèng riri mring kakung|Jayèngraga nulya ngalap ambêng piring|sinaoskên sêkul gupuh|sinungkên mring kang garwa lon||
+
+### 16.
+Wusnya samya tuturuh|adan lêkas anadhah pikantuk|wong katêlu papat Ni Rara Widuri|tan pati pamulukipun|ukur bae ngojot-onjot||
+
+### 17.
+Sinamun andudulu|wayang krucil nuju lakonipun|Anjasmara duk nusul mring Damarsasi|angayam-ayam wana-gung|samarga-marga rèrèndhon||
+
+### 18.
+Udrasa kawlas-ayun|kacanthèling ri bandhil sing sirung|gya kapanggih lan lakine Damarsasi|kawistara ing pandulu|Anjasmara gya pinondhong||
+
+### 19.
+Mèsêm suka andulu|dhasar dhalange nyênyêt atutuk|karya rarasing rum wong akèh kapengin|si Laba Wukir nèng ngriku|wong roro anabuh saron||
+
+### 20.
+Ni Widuri andulu|marang Laba Wukir mèlu nabuh|jawil wêntis sarwi matur abibisik|pun Laba Wukir puniku|anèng wawayangan karo||
+
+### 21.
+Wau paduka nuduh|animbali lare ro kèn-nusul|lah punika manawi karsa nimbali|Jèngraga mèsêm lingnya rum|iya karêbèn nèng kono||
+
+### 22.
+Mêngko yèn wus angundur|luwaring dhahar carikanipun|paringana kewala lorodan bukti|wus antara dangunipun|nutug luwaran tuturoh||
+
+### 23.
+Gya cinarikan mundur|linorodakên lorodanipun|Laba Wukir pan wus pinaringan bukti|rare ro ature nuwun|yata kang anèng susuro||
+
+### 24.
+Kang samya wêktu Luhur|wus bakda bêdhug prapta sing tajug|wangsul maring paningrat tata alinggih|Jèngraga gya maring tajug|kakirên dènnya a-Luhor||
+
+### 25.
+Wau ingkang alungguh|Mas Wiracapa alon amuwus|Wirabajra tarup tatuwuhanèki|
+
+ê
+
+### 25.
+ndi kang wus padha alum|salinana ingkang ijo||
+
+### 26.
+Ingkang liningan matur|sandika ing rèhira tinuduh|tan adangu dènnira imbalan angling|Kemas Mancanapurèku|prapta ngirid pikulan bot||
+
+### 27.
+Jêjodhangan adulur|lan wong wadon nom tuwa gumrudug|lan sêlire Mas Wirancana Ngabèi|kinêrig tan ana kantun|kinèn laju marang gandhok||
+
+### 28.
+Kabèh warnining pikul|pêtani gêng rinayap ingusung|kawal kajangsirah myang kasur guguling|lan kandhaga karangulu|kêpèk pêthilan garobag||
+
+### 29.
+Miwah brag-gabragipun|winot ing cikar sadayanipun|Mas Mancanapura masrahakên salir|wus tinampan sadayèku|nulya mangarsa alunggoh||
+
+### 30.
+Nulya samya alunggoh|Singabancana ngirit pipikul|mamêntahan kang pala-kasimpar tuwin|kêbo sapi lawan wêdhus|bèbèk ayam abon-abon||
+
+### 31.
+Pinasrahakên gupuh|marang (m)bokmas Wirabancanèku|rajakaya sadaya kinèn nancangi|gya mangarsa nunggil lungguh|yata wau ingkang rawoh||
+
+### 32.
+Mas Wirancana gupuh|ngirit pipikul wong wolungpuluh|bêras godhong kayu kang pinikul sami|sinrahkên sadayanipun|gya mangarsa nunggil lunggoh||
+
+### 33.
+Wiryancana sumusul|ngirit pipikul mung wolungpuluh|kang pinikul gula kalapa kêmiri|wowohan pala-gumantung|kacang kêdhêle binagor||
+
+9 (Mawarni-warni ubarampenipun tiyang ngundhuh têmantèn) Saking Trênggalèkwulan dhatêng watawis 200 pêpikul ambêkta mawarni- warni ubarampenipun tiyang ngundhuh têmantèn wujud: jêjanganan, wos, gêndhis, kêmiri, wowohan lan sanès-sanèsipun, dumugi pangangge sêmbêt tuwin êmas barleyan. Siyaganing damêl ing pawon umyung rame swantênipun tiyang olah-olah. Sêgahan dhêdhaharan dumugi inuman wuron pêpak botên badhe nguciwani. Sambèn kalênengan, Kulawirya tuwin Jayèngraga tumut nabuh sakalangkung wasisipun, dipun sindhèni ronggèng Ni Grèpèt, ingkang nggêndèr Ni Asêmsore langkung ing kasagêdanipun. Kaca 63 – 74 610 Gambuh 34.
+
+### 33.
+Katungka prapta wau|Mas Mangunjana ngirit pipikul|pan wong patangpuluh kang pinikul sami|lênga myang arak nèng buyung|miwah mikul arta bolong||
+
+### 35.
+Sinrahkên kang (m)bokayu|wus tinampan ing sadayanipun|Wiryanjana Mangunjana gya mangarsi|wus tata anunggal lungguh|Ki Kulawirya ngling batos||
+
+### 36.
+Dene santosa tuhu|nora jamak kasaguhanipun|sadulure Mas Wirancana Ngabèi|padha angirit pipikul|sêsêmutan praptaning wong||
+
+### 37.
+Bobote ngunjal laku|saking Galèk mring Lêmbuastèku|iba ngêbrok ana ing kana pribadi|baya patang mene langkung|sangkule kasaguhing wong||
+
+### 38.
+Mas Wirancana muwus|mring pra ari paran sadaya wus|samya matur sawêg samantên kang prapti|gampil kakiranganipun|ing wingking kawula rêtos||
+
+### 39.
+Eman nora lêstantun|dènnya rabi Ki Jayèngragèku|rada bêgja rada singgih tur asugih|ajarot bandha-abandhu|sanake asagoh-sagoh||
+
+### 40.
+Inggih sarampungipun|Mas Wirancana alon umatur|kang punika kawula sampun anuding|punapa sarèhing tuduh|kawula dhatêng lumados||
+
+### 41.
+Dados botên arikuh|Ke Kidang Wiracapa amuwus|kang punika botên anakmas ngabèi|malah andika anuduh|mring paman anut sapakon||
+
+### 42.
+Mangsa winot ing bau|andhadhani nakmas karsanipun|kula pan wus pasrah tan ngrasa darbèni|papan pawisma sadarum|sumangga ing rèh kemawon||
+
+### 43.
+Wirancana umatur|inggih sandika anuwun maklum|Kae Kidang Wiracapa anêngahi|mas dêmang malih amuwus|mring kadangira lima lon||
+
+### 44.
+Wus tandangana gupuh|iya mangsa bodhoa sirèku|wus kalilan sadaya karêpirèki|pra kadang samya umatur|sandika (n)dum karya gupoh||
+
+### 45.
+Gya lèngsèr saking ngayun|Mas Mancanapura mring wisma gung|angirit wong undhagi pasang patani|siningsun kewala ngayun|pinatut rakiting krobong||
+
+### 46.
+Sangkêp saisinipun|angungkuli patani kang dangu|nuduh karya kang kêmbar-mayang sarakit|Mas Singabancana nyangkul|anjêjêgi karyèng pawon||
+
+### 47.
+Tapuking gawe umung|abusêkan jalwèstri abikut|swaraning wong (ng)gêlêpung mêcah kêrambil|kang bêlandhong nyigar kayu|mupuh ulam ting garaplok||
+
+### 48.
+Srènging gorèngan asru|pangupuhing wong nyêluk jinaluk|tanpa rungyan arungan anambut-kardi|yata kang lagya awêktu|Jèngraga wus bakda Luhor||
+
+### 49.
+Anèng surambi nuduh|maring santri kèn-nimbali gupuh|mring si Laba Wukir tan dangu gya prapti|Jèngraga ngandika arum|Laba Wukir sira karo||
+
+### 50.
+Aja mulih sirèku|sakalane sun maksih nèng Lêmbu|
+
+-
+
+### 50.
+asta tugura raina-wêngi|ywa lunga-lunga sirèku|ana-a paningrat kono||
+
+### 51.
+Kang liningan umatur|sandika ing rèh kinarsan tugur|Jayèngraga nulya mring paningrat linggih|Laba Wukir datan kantun|nèng wuri tan kêna adoh||
+
+### 52.
+Mingsêr ingkang alungguh|pinapantês anèng kananipun|Kae Kidang Wiracapa ngandika ris|wawi sasêmbèn ing ngriku|punapa ingkang ginayoh||
+
+### 53.
+Matur sadaya nuwun|ngambil nyamikan sasênêngipun|Jayèngrêsmi Jèngraga Kulawiryèki|samya ngling sajroning kalbu|myat patraping sakèhing wong||
+
+### 54.
+Dinadak prandènipun|tan ana kèthèr sadayanipun|nora ana lyaning wong ing Galèk sasi|sadaya santananipun|angrampungi cèkoh-cèkoh||
+
+### 55.
+Dadya kraosing kalbu|
+
+è
+
+### 55.
+ngêt nèng krajan Wanamartèku|duk panggihe Tamabangraras lan Mongragi|putra santana anyangkul|karya dènnira mamanton||
+
+### 56.
+Ngawirya tri ngêmu luh|sinambi mucang sarwi (n)dudulu|solahing wong kang samya anambut-kardi|miwah amangun mamantu|lir pangantèn dèrèng panggoh||
+
+### 57.
+Sadaya kang alungguh|angaring tamu samya ngêmu luh|wus kadugi samya karaosing galih|tan wikan wadining sêmu|Dêmang Wirancana ngling lon||
+
+### 58.
+Mojar ing arinipun|mêngko yèn wus mayang gambyong Sêngul|samangsane Ki Mênthak wus angalithik|wong wiyaga konên talu|gêndhing barang bae Rimong||
+
+### 59.
+Dadya anguyu-uyu|gamêlaku si Sêpêtmadu|asauran lan salendro Si Bèrmanis|para ri samya umatur|pan inggih sampun mirantos||
+
+### 60.
+Tuwin panggènannipun|lamun wontên èstu kang pra tamu|para rayi-rayi paduka nagari|kilap kathah kêdhikipun|kang punika mangsa borong||
+
+### 61.
+Alon dènnira muwus|anakmas dêmang hya mêlang kalbu|hèh ya Bajra salu prantine wong cilik|sèwangên suwunge iku|karya pondhokaning dhayoh||
+
+### 62.
+Wirabajra umatur|inggih sandika punapa tuduh|Wirancana sumambung umatur aris|lah paman Wirabajrèku|prayogi nuding kemawon||
+
+### 63.
+Lah inggih anak sokur|suwawi lèngsèr saking ing ngayun|kula prênahakên wisma kang asêpi|sigra mundur kalihipun|Ke Kidang ngandika alon||
+
+### 64.
+Mring Mas Wirancanèku|sadhèrèk nagari lamun èstu|sami dhatêng kang (n)dika ulêm-ulêmi|anak ramèn adu-adu|sawung kêmiri myang puyoh||
+
+### 65.
+Wuron kasukanipun|Mas Wirancana mèsêm umatur|inggih kilap punapa andika mangkin|santana sampeyan wau|sêpuh anèm datan sèyos||
+
+### 66.
+Makatên rêmênipun|Ke Kidang Wiracapa amuwus|nakmas Jayèngrêsmi miwah adhi Ragil|sampun kakirangan maklum|pangguh tamu ingkang rawoh||
+
+### 67.
+Kang para ri umatur|sumanggèng karsa kang kinayun|ringgit Purwa myang talèdhèkipun mangkin|pan sami prayoginipun|karya tingalaning uwong||
+
+### 68.
+Wirabajra sumambung|yèn kula pyambak botên kadyèku|mêntas ramèn luhung nimbalana santri|salawat dhikir Maulud|mupung dèrèng sangêt wuron||
+
+### 69.
+Ngalap mapangatipun|Ke Kidang Wiracapa gumuyu|iya bênêr karêpe adhimu bêcik|kadingarèn kaya kaum|nganyar-anyari mancono||
+
+### 70.
+Wirabajra tumungkul|ginuyu ing sadaya kang lungguh|Kae Kidang Wiracapa ngandika ris|lah iya sira pangulu|golèka santri kèh kono||
+
+### 71.
+Padha dhikir Maulud|utamane ana-a wong satus|Ki Pangulu Asradênta matur aris|kalêrêsan tujonipun|wontên santri ingkang mondhok||
+
+### 72.
+Nêmbung nèng masjid agung|kathahipun tiyang sèkêt-wolu|kados wontên pitungdasa santri ngriki|sadayanya satus langkung|lamun samantên kemawon||
+
+### 73.
+Wirabajra gumuyu|nyata santri kèh rêjêkinipun|andang pira akèh santri padha mampir|Ki Kulawirya amuwus|Kang Wirabajra ambanyol||
+
+### 74.
+Kang myarsa sukèng kalbu|angling malih lah ya wis pangulu|kumpulêna kabèh saolèhe santri|agupuh kae pangulu|umatur sandika sagoh||
+
+### 75.
+Mangkana wancinipun|waktu Ngasar Ke Kidang amuwus|lah suwawi anakmas wêktu Ngasêri|kang ingancaran agupuh|samya salat maring suro||
+
+### 76.
+Yata kang kari lungguh|Mas Wirancana lingira arum|hèh sagunge sanak-sanakingsun sami|rèh wus wanci padha kukud|dadya kèndêlan mungêl gong||
+
+### 77.
+Ingkang wayang wus nutug|lêlakone Damarwulanipun|wus panggih lan Prabu-kênya Majapahit|kacrita wêkasanipun|Damarwulan madêg katong||
+
+### 78.
+Karyèn-buh dhalangipun|Ki Mênthak nyandhak golèkanipun|ginambyongkên golèkan ringgit Kalithik|thêngule nglêboni gandrung|kongsi wuda dènnya tombok||
+
+### 79.
+Wus bêdhol kayon tutug|kang nonton bubar sadayanipun|angandika Mas Wirancana Ngabèi|wong wiyaga konên talu|matur sandika gya naboh||
+
+### 80.
+Muni gamêlanipun|pelog rarase nyamlêng nêmipun|nama gêndhing Rimong rêmpêg angrarangin|wus sababak Sêpêtmadu|gantya Bèrmanis salendro||
+
+### 611
+## Dhandhanggula  1.
+
+### 611
+Wusnya muni cumêngkling amanis|raras miring antêp barang lima|sumèntêg nyamlêng sêrênge|karya gagaling kalbu|anduling gong Nyêkar-gadhungi|kênonge ngula-lanang|kêthuke angêngkuk|ricik sarancaknya lumak|panabuhe jêjêg angapinjal Pathi|imbale atilêpan||
+
+### 2.
+Tan kasêron ririh ukur (n)jawil|sêsènggolan kabèh tan sulaya|Bèr-manis kêling arume|rêbab gambang suling sru|sing angrungu maring Bèr-manis|samya ngowahi solah|berag ambabêsus|gêndhinge lagu prayoga|mèsêm-mèsêm Mas Wirancana Ngabèi|angling mring para kadang||
+
+### 3.
+Iya ta lah si Bèr-manis iki|yèn muni têka tanpa tandhingan|sakèhe salèndro kabèh|nora ana kadyèku|nadyan kutha tan anamadhani|para ri aturira|pan inggih saèstu|kawula dèrèng tumingal|ungêlipun ing salendro lir Bèr-manis|nyamlêng suruping raras||
+
+### 4.
+Panabuhira ukur anjawil|ting karênyit lir gamêlan dhanyang|pinirsa langkung manise|Wirancana gumuyu|angling iya bênêr sirèki|yèn mangkono dhawuhna|niyaga kon-nabuh|marang ing gamêlaningwang|Sêpêtmadu panabuhe konên ririh|lir Bèr-manis mangkana||
+
+### 5.
+Mas Mancanapura matur aris|sampun prayogi tinabuh sora|kalamun tinabuh rirèh|tan pikantuk srêngipun|kêdah sêru panabuhnèki|sabab kathah wawratnya|kandêl wilahinipun|kêdah antêping panatap|robing ungêl pun Sêpêtmadu ngarangin|ecaning katêbihan||
+
+### 6.
+Kalih dening saunining gêndhing|kang pelog sru sora gantya-gantya|salendro kang ririh bae|kapanggih ecanipun|raosing tyas amêratani|mara ing kono padha|jêg bênêr aturmu|kang pininton samya mojar|inggih lêrês prayogi ingkang kadyèki|nutug raosing manah||
+
+### 7.
+Wirabajra anauri angling|inggih kasinggihan atur (n)dika|sami pikantuk kalihe|srining panguyu-uyu|Wirancana mèsêm dènnya gnling|inggih Mas Wirabajra|kula langkung tumut|lah ta wis Mancanapura|konên dèn-sru anabuh gamêlan-mami|dimèn nuntung sêrêngnya||
+
+### 8.
+Dhinawuhan ingkang nabuh sami|yata ingkang salat nèng ngalanggar|wus bakda wêktu Ngasare|mudhun saking ing tajug|myarsa ungêl rarasing gêndhing|Jèngraga sasolahnya|kèluning pandulu|kadya bêksa salewanya|kawigaran pangunyu-uyuning gêndhing|kawistara ing tingkah||
+
+### 9.
+Praptèng paningrat Kae Ngabèi|Jayèngrêsmi miwah Jayèngraga|Kulawirya Nuripine|Asradênta Pangulu|pra putra ri gupuh ngudhuni|anulya tata lênggah|anèng bale agung|sadaya wangsul (ng)gyannira|Kae Kidang Wiracapa ngandika ris|maring Mas Wirancana||Langkung asri gamêlan kang muni|Sêpêtmadu lan Bèr-manis timbang|salèndro lawan peloge|bisa mrênah kang nabuh|wusnya sora tinampan ririh|gangsa pelog punika|pancèn tinabuh sru|alêga arum swaranya|yèn salendro kudu tinabuh kang ririh|sakeca piniyarsa||
+
+### 11.
+Mas Wirancana umatur inggih|kasinggihan ingkang pangandika|gangsa sami prayogine|Ke Kidang malih muwus|tanah padhusunan dhi Ragil|tan wontên ingkang mimba|gangsa ro puniku|adho sanadyan ing kitha|datan wontên anjawi ingkang (n)darbèni|kitha ing Pranaraga||
+
+### 12.
+Kulawirya aturira aris|inggih lêrês tan ana kang mèmba|punapa (ng)gyan yasa dhewe|gangsa kalih puniku|Kae Kidang Wiracapa ngling|daya dèyè sagêda|yasa kang kadyèku|punika sami bituwah|kang pelog sing êmbah-buyut duking uni|pun eyang Purbancana||
+
+### 13.
+Kang (n)darbèni ing Galèk pribadi|ingkang yasa gamêlan punika|nanging têdhak-dalêm gonge|gong padha yaning dangu|pinaringkên eyang ing Galik|kang salendro punika|sih wêtah sadarum|swargi eyang jêngandika|Radèn Patih Wirabrata Pranaragi|tumêrah ing kawula||
+
+### 14.
+Dalah kêcèripun tan nyulami|tuwin kula tan ngewahi raras|pan maksih wêtah balènyèn|Ki Wuragil gumuyu|asasmita marang Jèngragi|bibisik mring kang putra|iya pangrasaku|duwèke mratuwanira|durung timbang lawan si Alun-jaladri|kajaba salendronya||
+
+### 15.
+Sanyata tan ana kang nimbangi|kang putra mèsêm sinamun mucang|inggih makatên gajêge|Ke Kidang alon muwus|punapi dhi Ragil ingangling|matur Ke Kulawirya|kang pelog puniku|lan kagungane putranta|Jayèngraga inggih pelog sami ugi|timbang lawan punika||
+
+### 16.
+Rarasipun nême kaot kêdhik|gêng ngriku kaot sasigar wilah|kang ngêrobi sangêt gonge|ngriki sangêt gongipun|nyamlêng saplak lan riciknèki|sarwa sèbêt sadaya|sumbang rarasipun|anjawi gangsa-paduka|pun Bèr-manis sêdhêng saulonirèki|raras anglokananta||
+
+### 17.
+Kae Wiracapa gumuywa ngling|kadipundi basa nglokananta|kula dèrèng surup lire|prèhpun dhi Ragil ngriku|Ki Wuragil gumuyu angling|kawularsa tatanya|ing kakang liripun|ih dhi Ragil ardalepa|wong tinakon (n)dadak malês anakoni|rame dadya paguywan||
+
+### 18.
+Niyaga dhalang ingkang ngalithik|apan samya lagya ingingonan|panggêndêr walanjar mêndêr|tan mèlu mangan kêmbul|isih tansah pinêndir liring|marang Ki Kulawirya|balangan pandulu|apan wus sakesuk mula|ting kathuwêt iriban balangan liring|marang Ki Kulawirya||
+
+### 19.
+Kula punika kakang ngabèi|mirêngakên gamêlan sarancak|mung rêmên myarsakkên gêndèr|nadyan klênènganipun|piniyarsa kalangkung asri|tinimbang gambang rêbab|pênêt gêndèripun|sami-sami piyambakan|Kae Kidang Wiracapa mèsêm angling|lêrês Ki Kulawirya||
+
+### 20.
+Kojah niyaga sêpuh pribadi|gêndèr dadya bibitaning gangsa|sarancak kang ugêr gêndèr|sami sadayanipun|gêndèr mawa tangguh pribadi|Majapahit myang Tuban|lan tangguh Sêdayu|nènèman tangguh Mataram|gêndèr apik dhasar kang anabuh wasis|sakeca piniyarsa||
+
+### 21.
+Ki Kulawirya gumuyu angling|anolèh myat kang tan mèlu mangan|kados puniku tyang (ng)gêndèr|sampun kawilang baut|ngapinjalnya jêjêl tarampil|gumuyu Kae Kidang|Wiracapa muwus|dhasar komuk panggêndèrnya|botên wontên ing ngriki ingkang nyamèni|sring kula kèn gêndèran||
+
+### 22.
+Kalênèngan piyambak nèng jawi|sabên dintên awis anèng wisma|punika pun Asêm-sore|Ki Wuragil gumuyu|athik Asêm-sore namèki|mara sira mrenea|dèn-kaparèng ngayun|nèng kene sira (ng)gêndèra|Kang Ngabèi ngling Asêm-sore sirèki|tinimbalan mangarsa||
+
+### 23.
+Kang liningan agupuh mangarsi|angling malih hèh wong aniyaga|gêndère Bèr-manis kuwe|saosêna ing ngayun|gêndèr nulya sumaos ngarsi|keringe Kulawirya|ni Sêm-sore laju|antara suwuk pelognya|Kae Kidang Wiracapa mèsêm angling|prayogine punika||
+
+### 24.
+Nakmas Jayèngraga kang ngrêbabi|dhi Wuragil Kulawirya kêndhang|kula nabuh kêtipunge|sapa sing gambang iku|lah majua lawan kang nyuling|rêbab kêndhang aturna|marang bêndaramu|ingkang liningan agêpah|pan wus katur kang gambang suling mangarsi|Kang Ngabèi lingira||
+
+### 25.
+Sumangga sinênggrèng rêbabnèki|sêndhon pathêt manyura kewala|Jèngraga nênthêng kawate|wus pakolih nèmipun|gya sasêndhon manyura wasis|jariji anglir kala|
+
+-
+
+### 25.
+jêngking masang ngantup|tutup gêtêr mawiwilan|lir wigaring ukêl pakis kang jariji|kèsoke muput lamba||
+
+### 26.
+Yèn rangkêp rikat kari lêstari|wilêting tutup angêmbat kawat|ngêlong surup pangêluse|ngik-ingike angêntup|lir pangrêrihing dyah kapilis|katrêsan ing asmara|panjritnya tan asru|pangringiking pêgat-pêgat|pan mangkana sarênging bêsus kaèksi|yakmanyaring pangrêbab||
+
+### 27.
+Biniyantu rêbab gêndèr suling|amêlingi lir nglinging kumara|wilêt barung rum-manise|sakèhe kang angrungu|samya mêne lalu niniling|mruntus kakêdhokira|awuyungan kalbu|pawèstri kang samya nyanak|panglintinge kuwalik ênjêd nèng jawi|anon mèsêm binuwang||
+
+### 28.
+Wau sira Ni Rara Widuri|uningèng raka sagêd angrêbab|agorèh dènnira linggèh|wau pangrasanipun|sah sakêdhap kadya sêsasi|apungan jroning nala|dènnya gêng wulangun|lapake pangantèn anyar|ngunyêr trêsnanya tan kêna sah ing laki|uyang bênggang sadhela||
+
+### 29.
+Kang sasêndhon nundhung awawasis|nutug praptèng liyu-liyanira|Sarayuda sabêmane|papathêtanira wus|Mas Prawirancana Ngabèi|katêmbèn mring Jèngraga|kalangkung angungun|ambungah marwata-suta|myating mantu wasis pangolahing gêndhing|ngasorkên pra niyaga||
+
+### 30.
+Miwah pra kadang sasêntananèki|mulat mring Jèngraga suka-rêna|sarwasis bagus warnane|langkung panggung-gungipun|Kae Kidang Wiracapa ngling|wawi mungêl gêndhingan|pênêt Kuwung-kuwung|ya bênêr hèh Wukir Laba|anggambanga si Wukir ingkang anyuling|sigra ingkang liningan||
+
+### 31.
+Jayèngraga mèsêm ambukani|myat rare ro tarampil anggambang|lan abêcik panyulinge|anganyut Kuwung-kuwung|sasènggolan ricik kur (n)jawil|landhung iramanira|rangkêping panabuh|raras bancanging maruta|maratani karanan tyasing kang myarsi|puthis maring gamêlan||
+
+### 32.
+Kae Kidang Wiracapa angling|owêl têmên nora ginêndhèngan|mara sindhènana Grèpèt|ronggèng nulya nglik ngungkung|wuwuh wilêt ulêting gêndhing|ginêndhèngan adhamang|paparikanipun|gununge wong Kalisara|sun-talawu lawan kang asikil gadhing|anampar anèng paron||
+
+### 33.
+Cangak luwak kae dhandang-wiring|bayêm gatêl iya nora kalap|bot-ènthèng sun-sandhang dhewe|dhuh lae jênang-watu|papathine toyèng jaladri|kawula sampun sayah|Ki Wirya gumuyu|wong jèh tangèh têka sayah|sarwi nolèh mring panggêndèr gya mring ringgit|gumuyu kang tumingal||
+
+### 34.
+Ni Widuri lir sata mèmèti|lunga sadhela lungguh tan jênak|lèjême ngundang kakunge|kang kinêdhèp durung wruh|maksih (ng)gêndhing nêlaskên wasis|Kuwung-kuwung gya niba|kêndhange angguguk|kosèkan raras ciblonan|gêdhug magak bêm rêbah kêmpyang ngêpipir|mênjat ngêgèh irama||
+
+### 35.
+Wus antara dènnira anggêndhing|sêsêg gya ngandhêlong sêsalahan|nulya suwuk gamêlane|laju sêndhon nglêg arum|nutug liyu-liyanirèki|Sarayuda sabêman|Ki Wirya amuwus|tambuh kang sun-piyarsakna|gajêg rêbab gajêg sindhèn rêbab suling|abingung kang kapenak||
+
+### 36.
+Bok Asêm-sore tansah ngèsêmi|dhasar Ki Kulawirya wus pasang|ngon iriban sasuwene|iya ing wancinipun|sore surya anuntung wukir|Ke Kidang Wiracapa|alon dènnya muwus|ing bêcike Wirabajra|mupung awal padha mamadhangan dhisik|tan kasusu Mahribnya||
+
+### 37.
+Mangunjana mundur sigra nuding|kasinoman pawèstri pinatah|saosan jaba jêrone|pra samya sêliripun|myang santana samya ngladèni|pinatut panganggenya|samya nyar yu-ayu|sêlir santana pan beda|panganggone bokmas kang mamantês sami|tapih kakêmbênira||
+
+### 38.
+Pasinoman pawèstri angrukti|ingkang ngladèni marang paningrat|kang ngladèni jro wismane|nyamikannya ingundur|rarampadan lumadyèng ngarsi|lancaran wus tinata|andhèr anèng ngayun|wus mundur wong kasinoman|kari ingkang nyambêl kalawan ngêbuti|ngajokkên kang kinarsan||
+
+### 39.
+Jayèngraga ingaturan maring|wisma nadhah lawan ingkang garwa|lan ibu lawan êmbahe|Jèngraga gya umangsuk|marang wisma nunggal alinggih|Ke Kidang Wiracapa|ngancarani turuh|agêpah ingkang liningan|sami wijik gamêlan pelog kang muni|Bujangga-nom lirihan||
+
+### 40.
+Ronggèng si Grèpèt ingkang nyindhèni|apan samya kêmbul sami nadhah|miwah kang anèng wismane|samya bukti tan kantun|Ni Widuri angling ngalêsik|punika lam-ulaman|jêjawat sadarum|kang raka angling geneya|matur kados kadangon botên ingambil|sarwi akaca-kaca||
+
+### 41.
+Jayèngraga mèsêm aningali|mring kang garwa sasmita walaka|saking sangêt wulangune|ingkang raka gumuyu|sarya ngliling sinawung bukti|kang nadhah ing paningrat|pikantuk anutug|Ke Kidang Wiracapa jar|mêne kêpêl inggih ta lah adhi Ragil|badhe sampun mupakat||
+
+### 42.
+Tiyang anèng ing pamanton sami|lumrahipun ngungsèkakên awak|kuwatir lamun kaluwèn|tuwin panganggènipun|awon-awon kêdaha rêsik|kang darbe sarwa mubyar|mrih dinêlêng patut|niku wong ngungsèkkên awak|yèn pangantèn amung ngungsèkakên ati|tan watir prabot pangan||
+
+### 43.
+Lamun tilik pangantèn yèn ratri|sugih antuk angobe barisan|lamun wus lunga dhayohe|pan nora ngontak-ngantuk|nora ongab-angob sawêngi|kang samya myarsa kandha|sadaya gumuyu|Ki Kulawirya alatah|angling malih tiyang sami anglampahi|saya dadya paguywan||
+
+### 44.
+Ki Wuragil suka gumuywa ngling|de kobèt têmên murade kakang|sadhengah kajaring kabèh|datan ana kang wudhu|wus kagarap kabèh kaèksi|ngling botên ta anggarap|mungguh liding ngèlmu|tanajulira ing murad|milanipun pangantèn ngungsèkkên ati|sabab jêjêring rohyad||
+
+### 45.
+Awiwinih ingkang bangsa ati|tumurune rohyad amartabat|tumêkèng insaniyahe|maujud duking dangu|apan lesan panjanging bukti|pangungsène ing lesan|pangan kang wus tamtu|yèn sampun mangsa diwasa|pan ihtiyar sasandhangan kang utami|pangungsène ing badan||
+
+### 46.
+Yèn tirkine kang wus kaki-kaki|apan maksih tuwa rare jabang|jabang kungkulan tuwane|tuwa widhunganipun|gêr gumuyu kang sadayèki|Jèngrêsmi mèsêm suka|aririh gumuyu|Ki Wuragil Kulawirya|sru angguguk ngling tan nyana yèn kadyèki|dene nunjêm rasanya||
+
+### 47.
+Dhasar mêdèni kakang ngabèi|kongsi tan wruh rasane kang tadhah|miwah gamêlan sêdene|sanalika tan ngrungu|anauri kang samya linggih|kula inggih kadyèka|lepyan rasèng puluk|Kae Kidang Wiracapa|asasambèn bukti awacana aris|dhi Ragil Kulawirya||
+
+### 48.
+Ingkang sinung bisa anindaki|pamancade pananing panêmbah|kang makatên pêr-èmpêre|luyuding kang kadulu|dadalan kang marang kajatin|pan namung sanalika|tingkahing pandulu|amiwalakên Asya-a|lêlèjêming ikral mirat munajati|tubadil tan warana||
+
+### 49.
+Nanging alantaran lawan puji|ingkang sampun suhuling Hyang Suksma|puniku linangkahake|sakêdhik lothung-lothung|ginantêr lan talatènèki|prayoga ginraita|lir puniku wau|pinasah anèng ibadah|paedahe sampurnaning sêmbah puji|kang numpaking walikan||
+
+### 50.
+Ingkang samya myarsa anor-ragi|sami ngantu luwaring panadhah|dangu pangonjot-onjote|antara wus anutug|turuh asta sadayanèki|ambênge cinarikan|mring sinoman mundur|sawusira aluwaran|akukurah wedang myang mangsêgannèki|ing wanci suryancala||
+
+10 (Ngèlmu bab panêmbah tuwin sampurnaning panêmbah) Sêsambèning dhahar kêmbul, Kidang Wiracapa ambèbèrakên ngèlmu bab panêmbah tuwin sampurnaning panêmbah. Bakda Mahrib kawontênakên dhikiran Maulud kanthi singiran dening santri watawis satus, kalajêngakên kêndhuri kakêpung radin sami nêdha tuwin bêrkatan. Jayèngrêsmi maos rawi, Jayèngraga sêsingiran swantên arum, damêl kayungyunipun para èstri. Wasana kêpungan kêndhuri. Kaca 75 – 82 611 Dhandhanggula 51.
+
+### 50.
+Ingancaran salat wêktu Mahrib|Jayèngrêsmi sadaya mring langgar|Jèngraga ngling mring garwane|dhuh kariya wong ayu|ingsun salat Mahrib mring masjid|Widuri sêndhêt turnya|sampun dangu-dangu|pan kawula tan sagêd sah|lah bok sampun sêmbahyang kala-ne mangkin|benjing malih kewala||
+
+### 52.
+Jayèngraga mèsêm angling malih|sêmu ewa myarsa turing garwa|cah iki luwih bêrète|lir (m)Bok Sêmbada Pulung|nora lajêr labêt utami|tan pantês kinohana|angajak baliwur|mangkana osiking driya|samudana wuwuse angarih-arih|iya yayi sadhela||
+
+### 53.
+Nulya nusul salat maring masjid|wusnya kadas kantum sarêkangat|anututi ing makmume|antara bakdanipun|Mahrib praptèng Ngisanirèki|paragat wêktunira|wusnya asusuhul|rahap salawat salaman|rampung salat nulya mudhun saking mêsjid|wangsul lunggyèng paningrat||
+
+### 54.
+Kang putra ri samya angudhuni|ingancaran tata wangsul lênggah|akapang têpung dhêngkule|ladèn sumadyèng ngayun|nyanyamikan mawarni asri|Ke Kidang Wiracapa|alon dènnya muwus|lah (n)di santrimu Sradênta|Ki Pangulu matur inggih mangke kêdhik|sawêg dandos kang nuskah||
+
+### 55.
+Tan antara santri sami prapti|ambrubul lir salaba brubulan|Ki Asradênta nulya ge|amapanakên lungguh|saurute kang gêdhe cilik|sadaya cacahira|satus wolungpuluh|pinarnah kang para lurah|Kae Kidang Wiracapa angling malih|wawi lênggah pandhapa||
+
+### 56.
+Kang liningan tar sawala kapti|nulya samya lênggah ing pandhapa|pinggir lèr wetan mangilèn|mangunjana anuduh|hèh wong kasinoman dèn-aglis|sasaosan dhaharan|ladèkna ing ngayun|agupuh wong kasinoman|nyaosakên dhaharan asri mawarni|wowohan lah olahan||
+
+### 57.
+Dhah pateyan gembolan tap-sirih|wis samêkta mundur ingkang nampa|Ke Kidang Wiracapane|ngling marang ki pangulu|hèh Sradênta sapa kang dadi|pambatak salawatan|pangulu umatur|puniku Gus Kaplil-iman|lurah santri sing Kalangbrèt alim dhikir|Maulud salawatan||
+
+### 58.
+Angling malih lah inggih Gus Santri|kajat manira angalap barkah|nuskah ruwira singire|slawatan dhikir Molud|wus Bismilah ngriku awiwit|Gus Kaplil-iman turnya|ngumumakên wuwus|mring sadaya santri kathah|saur manuk samya nginggihi ngèstrèni|Gus Kaplil-iman nulya||
+
+### 59.
+Maca tangawudira ingapti|ambuka nuskah wiwit salawat|sinauran ing wong akèh|langkung ramya gumuruh|kadya gêrah swaraning santri|rêmpêg tan na salaya|sru anganyut-anyut|wus antara dangunira|praptèng akir tamat salawat kang singir|salallahu ngaleya||
+
+### 60.
+Gya Gus Kaplil-iman maca rawi|kir'at sêdhêng-sêdhêng pasèkatnya|wusnya katam ruwiyane|tinampan salallahu|kaping tri lan wong akèh sami|lurah Gus kapliliman|nuduh santrinipun|santri katri kinèn bawa|kang tinuding angêlik singir Bêsahri|swara sri abarungan||
+
+### 61.
+Ababêsus sajake kinardi|pangrasane tan na nimbangana|ciptanira bêcik dhewe|wong têlu rêbut unggul|gya tinampan sauranèki|gumêrah santri tathah|ramene kalangkung|wus akir tamat singirnya|suwuk mawa salalahu ngalaihi|lan wong kèh kaping tiga||
+
+### 62.
+Jayèngrêsmi kinèn maca rawi|sajak Yahman pemulan biyolah|titis kir'at pasêkate|ing mat lan kasaripun|tan kaladuk lajim lan jais|tratil mikrajwang sastra|swara manis arum|pra santri kang samya myarsa|pamacane rawi bagus Jayèngrêsmi|tan nyana yèn ngulama||
+
+### 63.
+Miris rumaos boya kadugi|angèmpèri sajak kang mangkana|dadya wêlu sakabèhe|Kidang Wiracapèku|mèsêm anon mring Jayèngrêsmi|miwah Mas Wirancana|sadaya angungun|lir tuwan wêdalan Ngarab|pamacane ruwiya angluwihi kadi|tan ana mangkana-a||
+
+### 64.
+Santri kabèh tan ana cêmuwit|rasan watu sêgu wae nora|sangking kayungyun sajake|tamat pamaosipun|maca lan wong akèh kaping tri|Ke Kidang Wiracapa|mèsêm alon muwus|wawi anak Jayèngraga|prayogine andika kang bawa singir|kang putra tan lênggana||
+
+### 65.
+Mundhut kancuh santri têlu singir|wus samakta santri pipilihan|gya wiwit rawi singire|singir tanga linuhung|ngêlik ngungkung anglangkungi|paribasan kang swara|turut usuk-usuk|buntas ulêm angumandhang|muluk rêmak gêtas rênyah rum amanis|ulone Jayèngraga||
+
+### 66.
+Santri têlu bêcu tan (m)barêngi|kèthèr puthêr ras-arasên mênga|cangkêm tulus mênêng bae|mlêngak sadayanipun|myarsa swaranira Jèngragi|praptèng ayating sik-ra|tinampèn gumuruh|sinauran ing akathah|samya erak angantêp suwaranèki|sangsaya sru wurahan||
+
+### 67.
+Nora etung erak gondhangnèki|saking suka myarsa kang abawa|bungah-bungah sadayane|dene swara kang luhung|lamun gantya tampaning singir|si Wukir lan si Laba|kinèn barung niru|nut landhung like kewala|Laba Wukir sabab nora tau nyantri|namung anurut swara||
+
+### 68.
+Suwe-suwe surup ukêlnèki|dadya tuntum saplak swaranira|saukêl paprigêlane|wêwah manisira rum|Jayèngraga angêtog wasis|ulone bêning mêmbat|ulêm ngêntul-êntul|gèdhèg Kidang Wiracapa|langkung suka myarsa swarane Jèngragi|anglangkungi akathah||
+
+### 69.
+Miwah kang martamu angabèi|Mas Wirancana sakadangira|kalangkung ngalêmbanane|akagum sarwa baut|gêndhing bêksa alim angaji|wong nonton èstri priya|samya brangta wuyung|wong pawon kang olah-olah|gumarubyuk tinggal gawe aningali|kang bawa salawatan||
+
+### 70.
+Kang lah-olèh tan kongsi (m)bumboni|lali kasusu panontonira|padha kasuwèn anjêngglang|gosong gorènganipun|yèn santri kèh anaurani|wangsul mring pawon sigra|kèh gosong gagêtun|parèstri kang anèng wisma|arêg-rêgan tambuh rasane kang ati|cipta sami kedanan||
+
+### 71.
+Nyunyungnya pan calumak-calumik|tan na aking samya kabanjiran|ngandhap nguwêt kakowoke|cêblokan (ng)guyu-(ng)guyu|ting kalêsik ngalêm Jèngragi|rarasan iya ta lah|Ni Widuri ontung|bênêr lèhe nunjang-palang|nora etang gungan olèh wong jêlanthir|jênthara sarwa bisa||
+
+### 72.
+Mara ta dhèk wong samene iki|jinawila marang Jayèngraga|iba banjur ngèthèh-èthèh|samya jorogan guyu|tan wus solahirèng pawèstri|kang lungguh nèng paningrat|pra bokmas sadarum|Ni Kèn Widaryati lawan|
+
+(
+
+### 72.
+m)bokmas Wirancana lan Rara Widuri|ki pinangantyan anyar||Sakèh wanodya suka miyarsi|marang swaranira Jayèngraga|langkung pangalêmbanane|Ni Widuri gung wuyung|tambuh solahira alinggih|ngêrêng ngunjal ambêgan|krêkuwan arikuh|tan bêtah pisah sadina|kadya jêbol igane êdêning ati|mêjên sadina-dina||
+
+### 74.
+Wus antara dangu ingkang singir|praptèng akir suwuk kang slawatan|tinampan salam wong akèh|gumuruh salallahu|ngalahi wasalam kaping tri|sigra Mas Mangunjana|angabani gupuh|marang wonge kasinoman|kinèn mêdalakên nyamikaning santri|gembol wedang panganan||
+
+### 75.
+Kang tinuding sigra sami ngrukti|mêdalakên ing laladènira|panganan nèng ngancak gêdhe|wedang srêbat sadarum|wus pinêtak royomanèki|lulurah lan arahan|wus ramut gya mundur|Kae Kidang Wiracapa|ngancarakên wawi kanca santri-santri|padha nyanyamikan anyanyamikan||
+
+### 76.
+Kang liningan sigra sami ngambil|wedang panganan sasênêngira|ting krêpyêk rame swarane|yata ingkang alungguh|nèng paningrat kang para èstri|Widaryati uninga|kang wayah wulangun|angling mring pawonganira|kinèn matur mring kang raka Ke Ngabèi|Jayèngraga taruna||
+
+### 77.
+Maring wisma layap mring tilamrik|gupuh kang tinuding mring pandhapa|wus umatur kang kinèngkèn|wangsul mundur (ng)gyannipun|Kae Kidang Wiracapa ngling|anakmas Jayèngraga|ingaturan kondur|mring wisma ibu-andika|kang liningan Jèngraga umatur inggih|rêndhêt tan pati dhangan||
+
+### 78.
+Suwe dènnya salawatan dhikir|sinasmitan mring Ki Kulawirya|lan kang raka pangliringe|Jèngraga sigra mundur|nèng paningrat alon alinggih|kinèn nadhah dhaharan|samya amumundhut|nyamikan sakarsanira|Ni Kèn Widaryati angandika aris|ring kang wayah pangantyan||
+
+### 79.
+Lah wus sira turuwa Widuri|marang tilam manawa karipan|nèng (n)jaba ywa suwe-suwe|prayoga nèng jinêmrum|Widuri tan lêngganèng tuding|dhasar wus sore mula|tyasira yang-uyung|mangkya pan kinèn alayap|nulya lèngsèr kathuwêtan (n)jawil wêntis|tumamèng pagêbêran||
+
+### 80.
+Kang sinasmitan wa ing galih|kalancangan lêlangêning karsa|dadya asêmpug dhangane|winatara wus dangu|Ni Kèn Widaryati ngling aris|anakmas Jayèngraga|sareya wus dalu|nèng jinêmrum lan garwanta|Jayèngraga liningan lèngsèr sing ngarsi|marang ing pasarean||
+
+### 81.
+Karongron lan Ni rara Widuri|myating raka praptèng pasarean|tar sangkrip sru panggulêde|karuna mrih cinatu|ing asmara rarasing gati|acipta ge-ageya|pinurwakèng lulut|Jèngraga ciptaning driya|amung anêmbadani ngecani kapti|batine wus sarwèwa||
+
+### 82.
+Saparone driya sudaning sih|prandene Widuri tan uninga|saking sangêt wulangune|tan ana kang kaetung|namung nêlêng rarasing rêsmi|kang raka anambrama|panggawe kur-ukur|Widuri saya amêksa|panggujêge tan kêlir sangkribing èstri|minta pulang-asmara||
+
+### 83.
+Wus anglukar wastra Ni Widuri|Jayèngraga ngunandikèng driya|wong iki dudu baene|mêrêm bae ngêthiwul|yèn ta aja anak priyayi|patut wong kabêdhalan|saênggone bêngkung|akathah sandeyanira|Jayèngraga anamudana ing rabi|kinuswa wirangrongan||
+
+### 612
+## Wirangrong  1.
+
+### 612
+Ginulingakên kang rayi|pan pinelahakên ing (n)don|priyanya lir pendah botoh sawung|anantang toh wani|angêpak ing kalangan|bae unggul tinadhahan||
+
+### 2.
+Awantêr kewala nanging|jagone angucir keyok|tan dadi tarungan nora dangu|mung botohe wani|mangkana pamènira|warastra datan gulawat||
+
+### 3.
+Amung pangungruming rabi|ing rara ingkang wirangrong|Ni Widuri kadya sata ayun|nunucuk tan olih|solahe lir kekeyan|dènnya mring cadhang asmara||
+
+### 4.
+Warastra tansah inguli|
+
+-
+
+### 4.
+uli mêksa angalèntroh|tan gulawat pisan ni rara sru|dènnira kêpingin|Ni Widuri karuna|warastra kang tinangisan||
+
+### 5.
+Matur punika dospundi|anggung makatên kemawon|tan wande kawula têkèng lampus|lamun tan sinung sih|adhuh lae bêndara|mugi sung asih maring wang||
+
+### 6.
+Jèngraga mulat ing rabi|
+
+è
+
+### 6.
+smu wêlas ing pandulon|angupayèng driya kinarya sung|marang kang mumurih|lir cintaka angêrak|minta rirising ngawiyat||
+
+### 7.
+Kakunge karsa murwèng sih|kang garwa nulya linêson|tinumamèng prana ing alulut|langêning arêsmi|pinolah wardêng tingkah|Widuri pongah-pangihan||
+
+### 8.
+Sinêmbadan ing pulang sih|kang binot dening kalangon|Widuri ciptanya rarasing hyun|kadya tan kêna wis|nutug raosing driya|tan wus kang andon asmara||
+
+### 9.
+Tan ana lir Jayèngragi|myang lêmbananing wong nonton|samya kêmba miyat tan liyan wus|Jèngraga asingir|ngenani tyasing kathah|kanyut dening swaranira||
+
+### 10.
+Wus tutug kang lagon dhikir|tamating nuskah ingaos|salawat atasing Nabi Rasul|sakulawarganing|alêlagon wêkasan|katam kang donga salawat||
+
+### 11.
+Nulya donga katam singir|dhikir Molud kang kinaot|kang amaca donga Ki Pangulu|Asradênta nênggih|aplalu numpa donga|ingkang nasib gantya-gantya||
+
+### 12.
+Santri kèh sarêng dènnya min|barung gumêrah swara wong|tamat (ng)gènnya donga Ki Pangulu|myang pra santri-santri|wus salaman sadaya|Kae Kidang Wiracapa||
+
+### 13.
+Nak Mangunjana dèn-aglis|ambênganira dèn-gupuh poh|sigra kang liningan nuding gupuh|mring sinomanèki|ingkang tinuduh sigra|amêdalakên asahan||
+
+### 14.
+Gotong-pat ingkang kêndhuri|salawe ambêng bot-abot|miwah lêladosan kang nèng ngayun|ambêng panjang giri|rampadan lam-ulaman|samakta sadayanira||
+
+### 15.
+Nyamikan binarkat sami|Ke Kidang wasana alon|lah wus kamadana kajadipun|anakmas ngabèi|majêmuk kirim donga|sung dhahar (n)Jêng Nabiyolah||
+
+### 16.
+Lan salamêting pangantin|tulusing oyod ngarondhon|lah wus donganana gya pandulu|santak andongani|tinampan ing wong kathah|amine ambata-rêbah||
+
+### 17.
+Nutug dènnya andongani|Ke Kidang Wiracapa lon|ngling suwawi samya tuturuh|hèh ngulu apa wis|bênêr kêpunganira|yèn wis warata Bismilah||
+
+### 18.
+Matur sampun sadayèki|sadaya sami tuturoh|(n)dan samya lêkas nadhah pikantuk|raosing pambukti|dhasar mêntas singiran|angêlih rosa amangan||
+
+### 19.
+Arame swaraning santri|kang kokoh jangan asèrob|ting krêcap kumrapyak ting kariyuk|kaecan abukti|tan cuwa lawuh kathah|anyamlêng panganira||
+
+### 20.
+Tan pae para priyayi|katêmbèn kêmbul sakèh wong|dadya amirasa sakalangkung|pikantuk abukti|tutug dènnira nadhah|luwaran samya wijikan||
+
+### 21.
+Ambêng wus kinèn anyarik|pra kasinoman agupoh|ngundurakên caosan sadaya wus|mundur kang ngladèni|ambêng kêndhuri samya|binarkat kèh pandumannya||Gêdhe cilik wus waradin|binuntêl anèng karoso|sawusnya samêkta para kaum|sadaya tur pamit|linilan sigra bubar|kumriyêg mulih barêngan||
+
+### 23.
+Gumrêdêg lampahing santri|nocol barêkat bareyot|wus kêmput sadaya wancinipun|pan wus lingsir wêngi|Ke Kidang Wiracapa|ngandika marang kang putra||
+
+### 24.
+Mas Wirancana Ngabèi|sêdhênge sami lêlêson|aripan ing benjang-enjang lamun|wontên tamu prapti|pênêt sami bubaran|samya umatur sumangga||
+
+### 25.
+Ke Kidang Wiracapèki|kundur marang gandhok kulon|Mas Prawairancana mring (ng)gyannipun|gandhok wetan nênggih|Jèngrêsmi maring langgar|Ki Wuragil Kulawirya||
+
+### 26.
+Ring pondhok kang pinaranti|lawan Nuripin tan adoh|kang kantun lênggah para kadang nung|maksih nèng pandhapi|samya tan ana nendra|mojar Mas Mancanapura||
+
+### 27.
+Niku wong niyaga sami|yèn wus padha mangan kang wong|lah akonên lêkas gamêlanmu|unèkna dèn-aglis|kang eca piniyarsa|anguyu jurudêmungan||
+
+### 613
+Jurudêmung 1.
+
+### 613
+Ki Wuragil Kulawirya|amiranti pondhokipun|saji dhadaharan tan uwus|Nuripin barkatira|laju pinangan ngathêkul|Ki Kulawirya ris mojar|dudu wong Nuripin iku||
+
+### 613
+11 (Ki Kulawirya katrajang sêsakit rajasinga) IV. Ki Kulawirya katrajang sêsakit rajasinga sakalangkung (ng)grantês ngantos supêna angsal pitêdahipun Jamal Jamil bab sarananipun sagêd waras kanthi lampah ingkang botên limrah, ewadene inggih katindakakên, wêkasan sagêd mayar lan mantun saking sakêdhik. Ing pondhokanipun Ki Kulawirya nimbali Ni Asêmsore lajêng salulut, sakalangkung marêmipun, ngantos marambah-rambah. Sarampunging sarêsmi wêkdal tuntasing kama, Ki Kulawirya ngraosakên sakit, karaos sumêngkrang kumramyas dumugi ing walakang lan sakala abuh, wasana gêrêng-gêrêng gêgêtun. Ki Kulawirya kacandhak ing sakit rajasinga. Nuripin kadhawuhan damêl kêthokan dêling kapêndhêt lapis lêbêtipun ingkang tipis minangka lapising pajalêranipun ingkang ngilu. Kaca 83 – 86
+
+### 2.
+Sira suwene amangan|ukur mingkêt juju-juju|dene tan ana warêgmu|umatur sêmbari mangan|mupung wontên rêjêki gung|yèn lumampah ngalas|sadintên tan gugut-gugut||
+
+### 3.
+Niki wontên winarêgan|parandene datan tuku|Ki Wuragil mèsêm muwus|dèn-age (ng)gènnira mangan|arsa sun-kongkon sirèku|matur yèn sampun anêdha|ngling saiki bae uwus||
+
+### 4.
+Kasuwèn lèhmu anggaglag|mêngko yèn wus gawemu|mangana manèh sirèku|matur kautus punapa|nauri undangan gupuh|si Asêm-sore rannipun||
+
+### 5.
+Nuripin lèrèn amangan|sarya angrundêl gumuyu|wong lagi mangan dèn-utus|tan mikir ora ilokan|wus praptèng panggènanipun|angling (n)dika tinimbalan|ing bêndara dènnya gupuh||
+
+### 6.
+Kang tinimbalan gra mentar|wus kerit prapta ing ngayun|Ki Kulawirya amuwus|mareneya dèn-mangarsa|Ni Asêm-sore mangayun|Ki Wuragil mèsêm nabda|pijêtana sukuningsun||
+
+### 7.
+Nuripin ngalih mring (n)jaba|barkate ginawa mêtu|nutugkên pamanganipun|Ki Wuragil Kulawirya|sisiwo nêkakkên kayun|dhasar watak tan saranta|anggarap wong kang kinayun||
+
+### 8.
+Anutug sapolah tingkah|sadhengah malang maegung|nêlaskên sasukanipun|sadalu tan kêna bênggang|anjêntol tan kêna mudhun|kalangkung dening mirasa|rinasa salamènipun||
+
+### 9.
+Anjajah wong pira-pira|tan ana ingkang kadyèku|ing ngrasa pangrasanipun|Sêm-sore onjo priyangga|mila anutug sakayun|cipta pinèt bojo pisan|niyat ginawa ing besuk||
+
+### 10.
+Sêm-ssore dhasar nom nawang|wulanjar rupane ayu|pinanggih surasanipun|mulane Ki Kulawirya|anutug tan etung-etung|saking karênaning rasa|sadalu dènnira undhung||
+
+### 11.
+Tan mêne panggêlakira|lingsir kongsi wêktu Subuh|dupi praptèng rasaning pyuh|anggadêdêr kalihira|bingung tambuh solahipun|kang wadon abuntangan|Ki Wirya kagèt anjumbul||
+
+### 12.
+Tuntasing kama wêkasan|sru sumêngkrang kraosipun|kumramyas panas kalangkung|ge-age pangluwarira|wadonne tinundhung mêtu|Ki Kulawirya jinabad|angungun sangêt gêgêtun||
+
+### 13.
+Kaborang dening walakang|kapupuh sakala abuh|mêrkotok pating palêmpuh|gêrêng-gêrêng karêngkêngan|nèng wisma kewala Subuh|karipan tan antuk nendra|dene guthul badhe pruthul||
+
+### 14.
+Ki Kulawirya ris mojar|Ripin mareneya gupuh|kang tinimbalan mangayun|umatur wontên punapa|angling kablaèn wak-ingsun|lara palananganingwang|anggrèwèl wong kae mau||
+
+### 15.
+Pan banjur abuh bêngkayang|kiye dêlêngên laraku|Nuripin sigra andulu|ngling u u apa ta apa|jarku apa yèn kadyèku|akowak dening kowèkan|jèh sampeyan awon nganggur||
+
+### 16.
+Lah kajêgur ing jêmbêran|têmahe bêngang abingung|yèn angsung irung garuwung|pundi kang katrajang ilang|yèn dhatêng ing suku kuthung|garumpung yèn dhatêng tangan|yèn dhatêng guthul paruthul||
+
+### 17.
+Lah niku sampun katara|konthol guthul ting palêngthung|sakite kados pinênthung|kalunthang angathang-athang|waune jêg lothung-lothung|kabungahên mênthang suthang|kacanthêng sakiting cênthung||
+
+### 18.
+Puniku badhe sakênthang|kênthang gêdhê plêntungipun|Ki Kulawirya ambêkuh|tus tus wong kapara edan|(n)dakdak criwis nguwus-uwus|wong dikon (n)dêlêng kewala|anggigilani rinungu||
+
+### 19.
+Nuripin akacêmutan|Ki Wirya amuwus|Nuripin priye budimu|apa kang ginawe tamba|abuhe saya gêng mêtu|larane nora kêjamak|ting pakênêng ting sarênut||
+
+### 20.
+Ki Nuripin aturira|kawula tan pati juntrung|sakit makatên punika|dèrèng nate kabêngangan|duga-dalêm jampènipun|kajawi kang damêl lara|kinèn nambani yèn purun||
+
+### 21.
+Tinêmpahkên jampènana|aran sakit saking ngriku|ajêng botên (ng)gih punika|Sêm-sore kang angusada|dimèn mantun sakitipun|lah ya undangên sadhela|nanging yèn ingsun andulu||
+
+### 22.
+Marang kang anggawe lara|kudu tumiba tanganku|o lah puniku ta sampun|sakit mênawi prakara|toge sampeyan kang luput|pênêt pinupus kewala|sawêg ganjaran tinêmu||
+
+### 23.
+Ki Nuripin nulya mèntar|ngulati Sêm-sore gupuh|tan nyana kene wis mantuk|gya umatur tan kapanggya|angling wis aja kêruruh|mêngko yèn ana timbalan|mangarsa manggihi tamu||
+
+### 24.
+Ingong pêksane kewala|ning sira hya tutur-tutur|marang wong utawa matur|Nuripin mèsêm turira|inggih botên botênipun|mangkana enjang wus siyang|pêpak kang samya alungguh||
+
+### 25.
+Nulya Wirabajra prapta|mring (ng)gyanning Kulawiryèku|ngirit patadhahan munjung|matur ing Ki Kulawirya|kula punika ingutus|paduka ngaturan lênggah|manawi wontên têtamu||
+
+### 26.
+Lawan wastra sapanampan|Kulawirya aris muwus|inggih dhi Wirabajrèku|andika matur sandika|mangke kula maring ngayun|Wirabajra sigra mentar|nulya wong sinomanipun||
+
+### 27.
+Mring ngarsane Kulawirya|nyaoskên pateyanipun|Ki Kulawirya agupuh|adandan arsa mangarsa|ngandika mring santrinipun|Nuripin sira gaweya|bumbung ingkang tipis alus||
+
+### 28.
+Ngong gawe lapis planangan|supaya bisa lumaku|nulya ginawèkkên bumbung|tipis kongsi miyar-miyar|ing jro lapisaning pupus|pupus pisang gya pinasang|kinêluh kalawan lambung||
+
+### 29.
+Wus mayar raosing lara|dandan dhêsthar nyamping sabuk|wus prayoga pamèripun|lah payo Ripin mangarsa|kang liningan atut pungkur|mathênthêng Ki Kulawirya||
+
+### 614
+## Sinom  1.
+
+### 614
+Yata kang anèng pandhapa|Kè Kidang Wiracapèki|Mas Demang Prawirancana|Jayèngraga Jayèngrêsmi|lan Ki Kulawiryèki|pra ari katri sumambung|Pranjara Wirangkara|waruju Wirabajrèki|tinêpungan para ri ing Galèk-wulan||
+
+### 2.
+Kae Mas Mancanapura|Singabancana lan malih|Wirancana Wiranjana|Mas Mangunjana pamuncik|atarap anèng ngarsi|Ke Kidang Wiracapèku|katongton wibawanya|saupacaraning mantri|anaroja ing puri samaktanira||
+
+### 3.
+Tumbak tulup tamèng pêdhang|sanjata panuwak kêrbin|towok wargu winêgigan|datan pae Mas Ngabèi|Wirancana kadyèki|muktine kadya tumênggung|nèng Galèk tanpa sama|samining desa ngabèi|lir Ke Kidang Wiracapa Wirancana||
+
+### 4.
+Suyude kadang santana|pawonge myang magêrsari|sumungkême abandara|tan ana marêngkang siji|yèn nuju darbe kardi|aguyup panrayapipun|acakut barang-karya|lir sêmut anêmu manis|sêdya pèndèng tan ana lumuhing karya||
+
+### 5.
+Mas Dêmang Prawirancana|dènnira amangun-kardi|nèng karajan Lêmbuasta|tan kapalang sakarsèki|gamêlan siyang ratri|rong rancak anguyu-uyu|dhayohira sêluran|wong cilik jalu lan èstri|magêrsari parapat kalang sudagar||
+
+### 6.
+Praptane samya nyunyumbang|pangiring jodhangan asri|mèt warnane papanganan|wênèh lawan kêbo sapi|miwah manjangan kambing|bèbèk ayam lan ulam-luh|sarta lan jodhangira|samya nganggo-anggo sami|apameran saduwèke wong andesa||
+
+12 ( Ing pandhapi Kidang Wiracapa tuwin Prawirancana sakadang) Ing pandhapi Kidang Wiracapa tuwin Prawirancana sakadang kadeyanipun sami jangkêp saupacaraning priyayi: tumbak, tamèng, panuwak, kêrbin lss. Kasusul dhatêngipun têtiyang ingkang sami nyumbang mawarni-warni: kêbo, sapi, mênjangan, menda, bèbèk, ayam lss. sakêlangkung kathah, dhaharan jêjodhangan. Para tamu sami mangangge kêtogan. Sadaya wau sakêlangkung anggumunakên Kulawirya lan Jayèngrêsmi. Miturut tatacara sêgahanipun mawi inuman arak waragang lss. ngantos kathah ingkang wuru. Kidang Wiracapa pitakèn têka Ki Kulawirya katingal sakit, wangsulanipun sakit wudunên, padatan mawi bêntèr tis, mila lajêng kaparêngakên mundur, kairingakên Nuripin. Kasusul Jayèngraga, wêlas ningali pamanipun. Nuripin kadhawuhan ngrambang pajalêranipun Kulawirya, lajêng pinarêman makjun, sagêd radi mêndha sakitipun. Kaca 87 – 91 614 Sinom 7.
+
+### 6.
+Anggili wong lunga têka|wong lanang marang pandhapi|angaturkên susumbang|Mas Mangunjana nampèni|miwah susuguhnèki|wus rinukti adatipun|parèstri manjing wisma|katur ing Bokmas Ngabèi|Wirancana sarwi nyandhing pêti giwang||
+
+### 8.
+Busêkan solahing janma|kang nyumbang kang nglaladèni|sugata gagawannira|sêkul panganan lan sampil|kakalak lumrahnèki|kang samya ginawa mantuk|bêdhile sajêdhotan|tandhane kang nyumbang prapti|sinauran sanjata têngêranira||
+
+### 9.
+Ing tanah Trênggalèk lumrah|carane wong duwe kardi|wong numbang yèn praptèng dhadhah|samya ngungêlakên bêdhil|jajaran tumbak siji|kang kuwat puluh rongpuluh|iring jojolèn jodhang|jinanur kuning rinujit|nora ketang wong siji jolèn sajuga||
+
+### 10.
+Tumbak siji jajarannya|angrimong jarite kêling|lanang wadon salendhangan|saduwèk-duwèke sami|ingkang samoa sami|kêndhang gong kênong myang kêmpul|tinabuh turut marga|sing wetan lor kulon tuwin|kidul samya ting carêngkung saruninya||
+
+### 11.
+Ngiringakên jolèn jodhang|rajakaya kang ingiring|kêbo sapi kinalungan|tumbak binorèyan kuning|pan kinêndhitan sami|ing bênang abang sagêmuh|kang nyumbang anèng ngarsa|gêlung ginombyong ing kanthil|nadyan tuwa anom mangkono caranya||
+
+### 12.
+Nadyan wong lanang kang nyumbang|samya sumping kêmbang kanthil|kang bèrag angore rikma|kinêbakan kêmbang kanthil|kang sudagar myang tani|kang sugih-sugih kadyèku|dadya tontonan marga|praptèng sawah bêdhil muni|dupi prapta mangkana pitêmbungira||
+
+### 13.
+Lampah kawula satindak|ambêgan kula sadêmi|adhapur asung pasumbang|sapele tandhanipun sih|tempe dulang raryalit|lan rajakaya sayuyu|wulaning bèbèk ayam|nuli samya anguculi|bubundhêlan picis ing kandhutannira||
+
+### 14.
+Puniku amung sayatra|kula-aturi midèni|gya winilang patang uwang|ya bangêt tarima-mami|sawuse dèn-tampèni|binagèkkên lujêngipun|anulya sinunggata|gagawan kalak rinukti|pan mangkana wong sugih-sugih sadaya||
+
+### 15.
+Kang samya jolèn jodhangan|bèbèk ayam kêbo sapi|sumbange suwang rong uwang|patang wang kèh-akèhnèki|dene kang joli siji|dhuwitan sumbanganipun|têlung kênthang pat kênthang|wolung kênthang kèh-kèhnèki|pan wus lumrah mangkono caraning desa||
+
+### 16.
+Tan pae lawan wong lanang|pitêmbunganira sami|kaot sinêntoring arak|kèh mêndêm mulih tan eling|ana banjur angibing|wênèh akon nantang satru|lumaku ingadu prang|kang supe kèn amatèni|rinampoga lamun leleda ing karya||
+
+### 17.
+Kèh solahe bêbèngkrakan|jalma nyumbang kang dèn-(n)dêmmi|
+
+ê
+
+### 17.
+nting pirang lodhong dènnya|kinarya anyunyuguhi|mangkana Jayèngrêsmi|Jèngraga Kulawiryèku|ngungun dènnya tumingal|samya amicarèng ati|nora jamak sajake amamantonan||
+
+### 18.
+Tanah desa mawa cara|carane wong numbang sami|lanang wadon pang mangkana|gagamêlan bêdhil muni|sami suka ningali|Ki Kulawirya gumuyu|tumingal wong anyumbang|adhêmên nora kepengin|susumbange mung ukur suwang rong uwang||
+
+### 19.
+Ngling ririh mring Jayèngraga|ya ta lah wong kene iki|pan beda ing aku kana|Wanamarta tan kadyèki|tatane wong punapi|suwang rong wang sumbangipun|tan padha lan wong kana|kang kuwat-kuwat samyanggris|Jayèngraga sumaur nauri sabda||
+
+### 20.
+Aririh marang kang paman|kantênan sanès desèki|bumi pae paekannya|ing ngrika kalawan ngriki|ambakna sumbang kêdhik|yèn tinêkdir dulunipun|kathah ngriki anumbang|babêktanipun kang mawi|bèbèk ayam kêbo sapi lawan menda||
+
+### 21.
+Kalamun dèn-rêganana|liyane nyamikannèki|wontên pintên ta punika|kang paman nauri aris|iya bênêr sirèki|yèn rinêgan sumbangipun|Ke Kidang Wiracapa|mèsêm angandika aris|lah puniki adhi ragil Kulawirya||
+
+### 22.
+Warnaning tataning jalma|sadhèrèk-andika ngriki|
+
+ê
+
+### 22.
+ntrage yèn wontên karya|mamanton panumbangnèki|sampun adat naluri|tatane kang wau-wau|wikana ta ing benjang|yèn ewah tataning jalmi|yèn samangke kêdah makatên limrahnya||
+
+### 23.
+Ki Kulawirya turira|sarwi krêp aliyan linggih|katêmbèn kula punika|sumêrêp sadhèrèk ngriki|dangune ngong-raosi|lan putranta Jèngragèku|sadhèrèk kang anyumbang|sêmune ngrêsêpkên ati|kagèt kula sumbangan mung suwang rong wang||
+
+### 24.
+Samantên punika tiyang|kawilang kang sugih-sugih|kang miskin mung dhudhuwitan|kasaguhane tan kira|andhandhang bantên kardi|angandhêmi lêbur luluh|wuwus tan mawi krama|angoko-kinoko sami|Kae Kidang Wiracapa mèsêm lingnya||
+
+### 25.
+Inggih punika caranya|gêng alit tiyang ing ngriki|yèn sampun ngoko basanya|tinuwêka dèn-lampahi|datan angeman pati|wus mangkana pandumipun|tanah ngriki sadaya|dumugi ing Pranaragi|sapangalor mangidul Jipang Magêtan||
+
+### 26.
+Nanging mawi waragangan|sanggupe amatês pati|mila ingkang tidha-tidha|anyantri sambi mriyayi|nuli tan krasan nyantri|pangrasane santri sintru|kathah tingkah kacêgah|awigih wêgah nglampahi|amila hur têkabur êbèr bawera||
+
+### 27.
+Prawirane kaprawara|
+
+(
+
+### 27.
+m)badhidhig ingaran julig|abungah-bungah bêdêngah|tan kudu anyontra-nyantri|anyuntrut tan prayogi|angur mriyayi rahayu|kari kajèn karêgan|sasolah tan cêgah-cêgih|dadya jugar srengate samya maksiyat||
+
+### 28.
+Kapenak tan mawi sarak|sakarêp-karêp dumugi|Ki Kulawirya alatah|latahe sru uga ririh|karaos sakitnèki|Ke Kidang Wiracapèku|mèsêm sarwi ngandika|kadingarène dhi Ragil|botên têtêp adhi (n)gyannipun alênggah||
+
+### 29.
+Ki Wirya nauri sabda|asakit kula puniki|wudunên wêlakang-ingwang|kados sawêg ambarèhi|agêng prênah (ng)gènnèki|kalangkung ing sakitipun|yèn sampuna jrih kakang|tan patos têgêl alinggih|angandika Kae Kidang Wiracapa||O yèn wudun trus sakitnya|adat mawi angatisi|kula-turi mring pondhokan|rêrêp sakalane sakit|Ki Ragil matur inggih|prasabên anulya mundur|Nuripin atut wuntat|Jayèngrêsmi Jayèngragi|samya mèsêm aningali ingkang paman||
+
+### 31.
+Binêtahkên lampahira|supaya tan ngatawisi|sapraptanirèng pondhokan|anjôgôr (n)dhodhok nèng siti|pulintiran anangis|ngulat-ngulêt ngodhah-ngaduh|gêrêng-gêrêng sasambat|adhuh priye kiyi Ripin|ngur matiya larane nora kuwawa||
+
+### 32.
+Nuripin wêlas kalintang|marêpêki mring Ki Ragil|lon umatur bok punika|bumbunge dèn-ulapi|ya karêpmu Nuripin|kang alon bae anjupuk|gya tali ingwudharan|bumbunge ingambil ririh|lagya (ng)gêpok ing bumbung krasa sumêngkrang||
+
+### 33.
+Ki Kulawirya anjola|mucicil ngagaki bithi|hus trayoli kêna sèbat|sru têmên cokormu ngambil|sun-arahe pribadi|ywa (m)bêgogok anèng ngayun|Nuripin lon umentar|sarwi garundêlan ririh|wong diupagawe (n)dadak arêp mala||
+
+### 34.
+Wus karêpmu kono dhawak|awak-awakmu pribadi|ah hêng hèh nora sambada|andèkna pringas-puringis|Ki Wuragil ambêkis|(n)dadak grundêlan su-buntung|aja lunga wong edan|mreneya anunên iki|Ki Nuripin wêdi mèsêm-mèsêm mara||
+
+### 35.
+Bumbunge dèn-arah-arah|ririh dèn-ambil wus kêni|anggubêl bak dening jitah|kêlumut nanah wis mijil|Nuripin kirak-kirik|sarwi anampani bumbung|pupuse amêlendrah|lir linèmpèng upil-upil|Kulawirya sumlêngêrên dènnya mulat||
+
+### 36.
+Yata wau Jayèngraga|prapta mêngakakên kori|kagyat kang paman tumingal|lamun ingkang putra prapti|Jèngraga amarpêgi|marang kang paman andulu|o paman katiwasan|lah punika kadi pundi|Ki Wuragil anauri kaca-kaca||
+
+### 37.
+Sapuluh-puluh anakmas|iya ngong kudu bilai|nora amilih jalaran|ganjaran bênduning Widi|awite anuroni|si Asêm diblêgo-ngalu|basa wêtuning rahsa|mèh (n)tèk sumêngkrang sakit|tyas-ngong kagèt ge-age manira lukar||
+
+### 38.
+Wonge brabat nuli lunga|sakala banjur ngabuhi|suwene sun nèng pandhapa|sun-bêtah-bêtahkên linggih|kinèn mundur kang bèi|nuli bumbung ingong jabut|iki rupaning lara|gabrès jitah nanah wuk-brit|nora bêtah larane tan lumrah-lumrah||
+
+### 39.
+Kang putra wlas mèsêm mojar|nyanaku wudun sayêkti|tan nyana wudun wadonan|ngacêmut mèsêm Nuripin|puniku kadipundi|inggih paman mangkenipun|prapta ing tamu kathah|paman tan sagêd manggihi|(n)dadak lara beka ana saba paran||
+
+### 40.
+Paman nabda sarwi waspa|yèn kadarus lara mami|sun-têtêdha ing Hyang Sukma|aywa kongsi bisa mulih|suka matya nèng riki|jisim-sun aywa ko(k)kubur|luwangên raganingwang|saking wirang-sun amulih|Jayèngraga myarsa linge ingkang paman||
+
+### 41.
+Kalangkung awlas tumingal|ngandika marang Nuripin|iku buwangên sukêrnya|priye akalira iki|rambangên nèng toya tis|dimèn luntur ingkang guluh|sigra rinambang toya|lintur ing ngirih-irih|pinarêman ing tamba makjun cuciyan||
+
+### 42.
+Supaya bisa amêndha|sakite saking sakêdhik|nyampingira wus cinêngkal|kang putra ngandika aris|paman kula-aturi|sasareyan anèng kasur|supaya rêrêm sênggang|kang paman jinagan aris|rêngkêng-rêngkêng mèkèh-mèkèh lon lampahnya||
+
+### 43.
+(ng)Ngalèyèh nèng pakasuran|ragi mêndha ingkang sakit|ing wanci têngange surya|wontên utusan pawèstri|matur mring Jèngragi|paduka ngaturan kondur|ing rama-jêngandika|ngling paman kula mangarsi|anauri ya mangsa bodhoa sira||
+
+### 44.
+Agupuh Ki Jayèngraga|akondur marang pandhapi|parèstri kang olah-olah|mêne tamate ningali|pating karècêm sami|rarasan dene abagus|kang aran Jayèngraga|mantune Mas Dêmang (ng)Galik|layak bae rara Widuri nubruka||
+
+13 ( Wanci lingsir kilèn tamu saking Pranaragi dhatêng) Wanci lingsir kilèn tamu saking Pranaragi dhatêng i.p. : Ngabèi Wijakangka, kasusul Ngabèi Wiranjaya lan ingkang saking Kalangbrèt, Rawa, sadaya kinurmatan ungêling bêdhil. Jayèngrêsmi lan Jayèngraga katêpangakên para tamu, ing batos para tamu sami ngalêmbana para putra ing Wanamarta wau. Para tamu sami nyumbang sarwi pangaos, wasana lajêng kaaturan ngaso ing pondhok ingkang sampun sumadhiya. Kaca 92 – 99 614 Sinom 45.
+
+### 44.
+Lajêng lênggah mring paningrat|nor lampahe Jayèngragi|wus andhèr kang tata dhahar|anganti Ki Jayèngragi|lênggah nunggil Jèngrêsmi|kang rama ngandika arum|kadospundi kang paman|punapa siyos ngatisi|Ke Ngabèi jroning tyas sampun anduga||
+
+### 46.
+Sinamun pangungunira|Jèngraga umatur aris|inggih wontên sangêtira|rayinta paman Wuragil|ngling malih ngancarani|andika kewala laju|ngaturan ing ibunta|manjing ing wisma abukti|Jayèngraga lumèngsèr mangsuk ing wisma||
+
+### 47.
+Alênggah tunggil ing garwa|nulya ingancaran bukti|Kae Kidang Wiracapa|tunggil ambêng lan Jèngrêsmi|Wirancana Ngabèi|pra kadang sarêng akêmbul|miwah laladènira|(ng)gyanning Ki Kulawiryèki|Ke Ngabèi ngancarani turuh asta||
+
+### 48.
+Agupuh ingkang liningan|(n)dan lêkas sami abukti|gamêlan munya rum raras|La-êla lon-lon angrangin|gêndhinge dèn-gêndhèngi|Bèr-manis manise nuntung|sarênge angumara|sarancak nyalupak sami|pênabuhe imbal ngapinjal sènggolan||
+
+### 49.
+Kang myarsa Bèr-manis munya|tyasira kudu angibing|saking sakecaning raras|panabuhe ukur (n)jawil|angênut-ênut ati|sinambi dhahar pikantuk|o enak tan kasêlak|angantêg-antêg kang bukti|Kae Kidang Wiracapa lon ngandika||
+
+### 50.
+Ing agêsang yèn sagêda|among momot ing sakalir|bawa solahing agêsang|tan ana dèn-sakuthoni|myang kang dèn-prasèjèni|lire basa kang kadyèku|tapakur marang Sukma|kang ngidhêp tan angidhêpi|myang sakalir mung sukur dandananira||
+
+### 51.
+Sokur wis tan suka bingah|lawan wus tan êsak sêrik|mring sarupaning agêsang|jalma sato miwah pêksi|myang rês-rês ing sabumi|sami titahing Hyang Agung|tan karêp lan siniya|puniku kang dèn-wastani|among amot amung muhung dhawakira||
+
+### 52.
+Puniku tandha ngalamat|dadalan dadi udadi|wus prasèjèning Asya-a|pancade wong ahli luwih|Jayèngrêsmi nor-ragi|kêpêle ing ngantu-antu|tanpantuk nadhah kathah|tuwuk myarsa rasaning ngling|wêwah ajêm kajatmikaning ngulama||
+
+### 53.
+Wus tutug dènnira dhahar|luwaran dènnira bukti|ambêng nulya cinarikan|nyamikan lumadyèng ngarsi|Ke Kidang ngancarani|wawi sinambi ing ngriku|pisang sigêging manadhah|kang putra nuwun turnèki|pra putra ri samya ngalap sasênêngnya||
+
+### 54.
+Antara dènnya lênggahan|kang surya gumiwang lingsir|angatag salat ing langgar|adhangan Ki Jayèngrêsmi|pangulu modin santri|Ki Jayèngraga anusul|kadas makmum sêmbahyang|praptèng bakda Luhurnèki|wusnya pragat nulya wangsul mring paningrat||
+
+### 55.
+Lingsir kulon wancinira|wontên wong ngaturi uning|kalamun wontên dhatêngan|prayantun saking nagari|Mas Mangunjana gipih|mring kori amêthuk tamu|têngara ajêdhotan|jaba jro kang bêdhil muni|wusnya tundhuk ngaturan lajyèng pandhapa||Dyan Ngabèi Wijakangka|punggawa ing Pranaragi|abagus aprajuritan|anyuriga dhuwung katri|kering suduk rinukmi|apêpêthêt tudhung basu|
+
+-
+
+### 55.
+nandha jinamang renda|lumampah srigak mantêsi|gamêlannya munya Ladrangan barungan||
+
+### 57.
+Praptèng tritising pandhapa|Ke Kidang Wiracapèki|myang Mas Dêmang Wirancana|samya gupuh ngancarani|nulya dyan angabèi|amapan dènnira lungguh|tinut pra rencangira|binagya wilujêngnèki|amangsuli samya raharjaning krama||
+
+### 58.
+Mas Dêmang Prawirancana|angling mring Wirancanèki|ruktinên prayogakêna|rumate Kimas sirèki|kang liningan nulya glis|sugata pateyanipun|myang pamondhokanira|nulya atêngara malih|Mangunjana nulya mêthuk maring lawang||
+
+### 59.
+Dyan Bèi Wiryawijaya|lan Dyan Wiryadipurèki|kalih wus kèrit ing lampah|saupacaraning mantri|gamêlan anêsêgi|barungan pating jalênggur|wus prapta ing pandhapa|ingancaran samya linggih|binagèkkên wilujêng ing kalihira||
+
+### 60.
+Nulya na malih têngara|Mas Mangunjana nulya glis|amêthuk tamu kang prapta|sakawan saking nagari|Mas Bèi Wirapati|Wangsapati malihipun|Dyan Dêmang Malangdewa|Mas Puspalaya Ngabèi|prawira-pat kèrit-ing Mas Mangunjana||
+
+### 61.
+Bêdhile abêrondongan|têngarane tamu prapti|umyung gamêlan barungan|pangliking ronggèng kakalih|praptèng tarup taritis|ingaturan samya lungguh|nulya atata lênggah|gya malih têngara muni|ting jarêdhot Mas Mangunjana agêpah||
+
+### 62.
+Pipitu priyayi têka|lan garwa nitih turanggi|Dyan Ngabèi Mangunbrata|Dyan Bratawangsa Ngabèi|Ngabèi Jayapati|Mas Dêmang Jayabilaru|Mas Dêmang Sandipura|Dyan Sumajaya Ngabèi|lawan Radèn Puspagati maksih magang||
+
+### 63.
+Krakêt lan kang darbe kutha|keringan asor ngabèi|wus kèrit ing lampahira|prapta ingacaran linggih|nulya têngara malih|Mas Mangunjana agupuh|mêthuk tamu kang prapta|saking Kalangbrèt myang Rawi|Dêmang Ranujaya Dêmang Setajaya||
+
+### 64.
+Lan Dêmang Ranumênggala|tuwin Dêmang Ranupati|Dyan Dêmang Ranudipura|Dêmang Ranudikarèki|Ki Dêmang Ekamantri|lawan Dêmang Ranukewuh|Ngabèi Ranubaya|sasanga wus tundhuk kèrit|gumarudug prapta ingancaran lênggah||
+
+### 65.
+Binagya sabda wijaya|umatur mangsuli krami|wus tata palungguhira|alalante sadayèki|nulya Mangunjanèki|angatag sinomanipun|mêdalkên pasugatan|panginuman arak api|pirang goci lan cangkire anèng talam||
+
+### 66.
+Ing inuman wus warata|mundur ingkang angladèni|nulya pateyan mangarsa|miwah pamucanganèki|pra tamu matur aris|mring Mas Dêmang kalihipun|lêrêsipun punika|besanan angsal ing pundi|anauri Kae Kidang Wiracapa||
+
+### 67.
+Lêrêse botên besanan|sakalanipun ing mangkin|inggih wikana ing benjang|têpange sami sisiwi|sapuniki nujoni|putrane (n)Jêng Kyai Guru|pradikan Wirasaba|dhusune Wanamartèki|kang awasta (n)Jêng Kyai Bayi Panurta||
+
+### 68.
+Duk nènèmane dhèk kula|Ki Bayi kalawan mami|apan tunggil panêcêpan|saeka sabaya-pati|kang sami golong budi|wong sasanga tunggil guru|sami-samining mitra|mring kula kalangkung asih|kang kinanthi kinathik ing dalu siyang||
+
+### 615
+## Kinanthi  1.
+
+### 615
+Lah puniku putranipun|kang kalih pinuju kampir|saking tirakat lalana|awasta Ki Jayèngrêsmi|kang taruna Jayèngraga|lagya pinarêng ing takdir||
+
+### 2.
+Nèng ngriki ingambil mantu|jodhone Rara Widuri|dhaup lan Ki Jayèngraga|lan wontên malih satunggil|kang paman ran Kulawirya|kadang wragile kiyai||
+
+### 3.
+Ing mangke pamondhokipun|lagya kapambêngan sakit|pra tamu ngungun sadaya|tumingal mring Jayèngrêsmi|miwah maring Jayèngraga|rêspati sêmu priyayi||
+
+### 4.
+Kang tuwa jatmika ruruh|pasêmone cahya wingit|kapèncut ngambil mantuwa|kalawan Ki Jayèngrêsmi|kabèh osike mangkana|kang samya myat Jayèngrêsmi||
+
+### 5.
+Lan kang anom rêbut mangun|karone rêbut pinilih|Jèngraga pasêmon muncar|lungite amriyayèni|emane tan jênêng rangga|amêngku para ngabèi||
+
+### 6.
+Dyan Mangkubrata ris muwus|kèngêtan kula ing nguni|inggih (n)Jêng Pangeran Kutha|ngandika marang dyan patih|Wiryabrata kang timbalan|ingsun angrungu pawarti||
+
+### 7.
+Lèr tanah Wirasabèku|ana ngulama sawiji|pagunungan Wanamarta|durung cêtha arannèki|pan ana kasupèn-ingwang|jênênge ngong eling-eling||
+
+### 8.
+Iku wartane linuhung|ginuron pra ngulama lim|marono padha pruwita|nadyan bupati pasisir|kèh nêcêp mring Wanamarta|sampurnane lair batin||
+
+### 9.
+Wancine maksih nom bagus|ginuron ing kaki-kaki|tuwa nom angalap bêrkah|ngulama miwah priyayi|malah kasêbut uliya|wus mêtu mangunahnèki||
+
+### 10.
+Kramate jalma linuhung|lagi rasane tyas-mami|kaya-kaya sun têmuwa|marang kang sinêbut luwih|kaya ngapa sun têmuwa|priye budinira patih||
+
+### 11.
+Paman patih aturipun|inggih katitik rumiyin|gethang yêkti kawistara|nuntên sumêne (n)Jêng Gusti|dening ature dyan patya|kilap wasananing mangkin||
+
+### 12.
+Punika kula nunuwun|paduka kang sampun dêling|inggih ing bab Wanamarta|dados kawula nujoni|sagêd umatur sung warta|mring paman katur ing Gusti||Pun uwa sampun adunung|Kè Kidang Wiracapèki|puniku rada balêjad|tan pati tuntuming warti|yèn kula gotèk duk kuna|maksih jajaka duk ngaji||
+
+### 14.
+Apisah kalane dangu|wus datan panggih-pinanggih|kongsi samantên putranya|kapanggih lagya samangkin|lawan putrane kewala|sasat wus sami kapanggih||
+
+### 15.
+Lan kaka (n)Jêng Kyai Guru|puniku arinta kalih|pênêd sami awanuhan|kang pinarlokakên prapti|umatur inggih sadaya|nulya sami nêmbramani||
+
+### 16.
+Mring kalihe sang abagus|tur pambage ganti-ganti|winangsulan karaharjan|pakramèng basa mênuhi|Dyan Ngabèi Mangunbrata|wijiling wacana aris||
+
+### 17.
+Kapasang ing yoginipun|kadipunêndi kang yêkti|kang kawuwus wau nika|ninilang titising warti|Jèngrêsmi nauri sabda|inggih kakang kang sayêkti||
+
+### 18.
+Kang sami angalap ngèlmu|ngulama lan pra priyayi|bupati pasisir ingkang|kadugi angalap ngèlmi|mring karajan Wanamarta|angguguru ngalap janji||
+
+### 19.
+Nanging wontên ninangipun|manawi salayèng warti|kang inangling (n)Jêng Pangeran|wancine taksih taruni|ing mangke kawula kilap|tan surup rujuking warti||
+
+### 20.
+Kang tatanya mêne ngungun|anggunggung sajroning ati|dhuh layak bae ta uga|kang kawêntara ngalêwih|barkat sudaning pawarta|kabar nom yêkti kang siwi||
+
+### 21.
+Iya ing kapandugèng-sun|Dyan Mangunbrata jrih asih|Jèngrêsmi micarèng driya|kasaliringan atampi|patute sinêngguh ingwang|baya kangmas Amongragi||
+
+### 22.
+Kang andon lalampah nglangut|tinitising kabar yakin|kajala kêna ing warta|(n)Jêng Rama lan Amongragi|durung patitising warta|dadya salaya ing mangkin||
+
+### 23.
+Têka mèsêm jroning kalbu|Jèngraga lan Jayèngrêsmi|tan pae graitèng nala|nalika tinanyan angling|kabar ngawag kabênêran|nanging ro sinêngguh siji||
+
+### 24.
+Mangkana danguning lungguh|ing wanci Ngasar wus akir|Kae Kidang Wiracapa|ngandika ris mring têtami|yèn wus sami aso ing tyas|kula-turi ring mapantin||
+
+### 25.
+Rèrèh ring pondhok karuhun|manira yun maring masjid|pra tamu matur nor-raga|inggih punapa rèh tuding|Kae Kidang Wiracapa|mring masjid lan Jayèngrêsmi||
+
+### 26.
+Jayèngraga datan kantun|Asradênta lan Nuripin|modin mantên samya salat|mring masjid makmum Ngasêri|tan cinatur rêkangatnya|kang mupit ana ing masjid||
+
+### 27.
+Yata wau ingkang lungguh|Mas Dêmang Wirancanèki|wacana ararakêtan|mring tamu tuwa nom sami|punika mantu-andika|kang taruna Jayèngragi||
+
+### 28.
+Sadaya mèsêm amuwus|kalangkung bêgja amanggih|mantu ngulama prawira|wandane angrêspatèni|pantês ingugung sakarsa|wus bêgjane Ni Widuri||
+
+### 29.
+Kang sagêd amomong mantu|kawula anjujurungi|Dyan Ngabèi Mangunbrata|lan Wijakangka Ngabèi|samya ngulungkên pasumbang|dhuwung saput ranti-rukmi||
+
+### 30.
+Puniku dhi kula angsung|padinan mantunirèki|Mas Dêmang Prawirancana|anuwun aturirèki|adarmi tampi kewala|putranta ingkang (n)darbèni||
+
+### 31.
+Kabèh pra mantri trilikur|samya sung pasumbangnèki|kaprênah nom miwah tuwa|mangarsa aganti-ganti|kang asung pêdhang kalewang|sanjata tumbak lan kêris||
+
+### 32.
+Pawèwèh ingkang amungguh|prayoga parabotnèki|wontên kang asung turangga|myang busana sarwa kêling|maesa lêmbu miwah kang|angsung èpèk bangkol rukmi||
+
+### 33.
+Kang asung sêngkang panunggul|turi rukmi ali-ali|mangkana sadayanira|ngangsungkên pawèwèhnèki|kang salat Ngasar wangsul (ng)gyan|
+
+-
+
+### 33.
+nira ing paningrat malih||
+
+### 34.
+Ke Kidang Wiracapèku|ningali santana mantri|angumbuk pisungsungira|prayogi langsung di-adi|punika pambungahira|panadare atutuwi||
+
+### 35.
+Sokur sakêthi jumurung|kang samya (n)dhatêngkên kang sih|kang ingujar anor-raga|samya umatur minta sih|pan inggih barkah-paduka|sagêd sapala ngaturi||
+
+### 36.
+Padintên tan pati mungguh|sadaya punggawa mantri|mring Ke Kidang Wiracapa|kalangkung samya jrih asih|sabab sêpuh awunira|uwa maman ngakang ngaki||
+
+### 37.
+Mas Dêmang Wirancanèku|ngandika marang kang rayi|hèh sira Mancanapura|lan adhinira dèn-aglis|pisungsung atur nèng wisma|marang bakyunirèki||
+
+### 38.
+Kang para ri ngambil gupuh|pisungsung kang anèng ngarsi|wong lilima maksih ngunjal|Ki Jayèngrêsmi ngling ati|ki besan tabon sêntana|paradhah watak priyayi||
+
+### 39.
+Kuciwa nora panuju|ing mangsa purwaning pikir|lagya madyaning apapa|kasaru kasru wong krami|bêgjane Ki Jayèngraga|kabancana ing dunyèstri||
+
+### 40.
+Mangkana têmbayanipun|Jèngrêsmi sajroning galih|mangkana kang sami lênggah|sakèhe para ngabèi|nuwun rèrèh ing pondhokan|linilan mundur sing ngarsi||
+
+### 41.
+Kaprênah panggenanipun|sadaya kang para ari|kang nèng jroning paregolan|miwah sajabaning kori|ramut gênah pondhokannya|rêrêbe samantri-mantri||
+
+### 42.
+Sinusulan ing susuguh|dhahar-dhaharan sumaji|
+
+myang suguh sukêt(?)
+
+### 42.
+tan kirang|miwah ingone pra jalmi|balêbah sêkul panganan|sadaya warêg waradin||
+
+### 43.
+Yata kang maksih alungguh|Ke Kidang Wiracapèki|ngandika mring putranira|punapa kinarsan mangkin|ing dalu tanggapanira|Mas Wirancana turnya ris||Sumanggèng karsa kinayun|pênêde tanggapanèki|prayogine wayang Purwa|matur inggih sadayèki|ngling mring Wirabajra sira|ngundanga mring dhalang ringgit||
+
+### 45.
+Si Gunawangsa bae wus|matur sandika kang rayi|nulya luwaran alênggah|samya siram mring pawingking|Jayèngrêsmi maring langgar|Jèngraga maring wismèki||
+
+### 46.
+Wau Ki Kulawiryèku|kang lagya sangêt asakit|kalangkung watir tyasira|sawungunira aguling|kagagas supênanira|wijiling sabda kang kèsthi||
+
+### 616
+## Mijil  1.
+
+### 616
+Animbali santri hèh Nuripin|mareneya gupoh|kang inguwuh-uwuh mara age|praptèng ngarsa Ki Wirya ngling aris|ngong tuturi Ripin|mau wayah Luhur||
+
+### 2.
+Turu saliyêpan sun angimpi|iya ingkang katon|katêmu lan Jamal Jamil mrene|kaya patute lakune kampir|têtela dènnya ngling|pitutur maring-sun||
+
+### 3.
+Lah anutuh-nutuh pokal-mami|wèng-wènging lêlakon|pan mangkene Jamil ing tuture|sakit-(n)dika punika nyamari|namung sisip têmbir|botên sagêd mantun||
+
+14 (Kulawirya nimbali Nuripin, nyariyosakên supênanipun) Kulawirya nimbali Nuripin, nyariyosakên supênanipun, dipun dhatêngi Jamal Jamil lan dipun aturi pitêdah jampining sakit rajasinga, i.p. kêdah sanggama kalihan prawan kêncur utawi wanita ingkang luwas rah. Botênipun kalihan kapal. Nadyan kamanah anèh, ewadene Nuripin mrayogèkakên kalihan kapal kemawon, mênawi kalihan prawan utawi wanita luwas-rah nênambahi dosa, jalaran mêsthi badhe katularan. Kulawirya pasrah dhatêng Nuripin kalampahipun sarananing usaha. Saking akalipun Nuripin sagêd kalaksanan kanthi cara ingkang botên limrah, wasana sakitipun Kulawirya sagêd kathah mayaripun, lajêng dhatêng pandhapi ngêmpal para tamu ing pahargyan. Kaca 100 – 113
+
+### 3.
+Rajasinga puniku niwasi|nêlaskên kang wutoh|nanging wontên punika sarate|lamun têgêl Kenthol anglampahi|sa-Allah yèn mari|sakit-(n)dika niku||
+
+### 5.
+Binalotongakên kapal èstri|yiniyatan godhong|wora-wari-bang sundêl-malême|pinipis kang lêmbut pinêrêsi|sinaringa nuli|binorèhkên guthul||
+
+### 6.
+Dimèn lênya supaya hya sakit|katanggoring adon|dèn-kongsi mêdalakên manine|lamun pan mêkatên tiyang èstri|kang wus luwas gêtih|ginarapkên ngriku||
+
+### 7.
+Yèn botêna lare prawan kêncing|dèrèng uning raos|nanging botên ilok pakantuke|sabab sakit ngalih dhatêng èstri|adamêl pênyakit|pênêd kapalipun||
+
+### 8.
+Sawusing mangkono nuli tangi|gya manira lunggoh|iku priye Nuripin bêcike|apa wong tuwa apa raywa lit|bocah winitawis|yèn wus kêlar êjun||
+
+### 9.
+Angur êndi wong kang luwas gêtih|lawan jaran wadon|Ki Nuripin macucu ature|kados wontên ing Wanamartèki|Ki Nuripin Macucu ature|kados wontên ing Wanamartèki|sintên dèn-karsani|tan kapalèng kayun||
+
+### 10.
+Anèng ngriki lagya lagi-lagi|karsa rèyah-rèyòh|langkung sangêt punika sarune|lamun purun yèn botên dospundi|adamêl prakawis|mindhak wuwuh imbuh||
+
+### 11.
+Prayogine kewala kang gampil|bok kapal bêsaos|prandenipun kapal èstri dhècèh|ingkang botên susah nora-nari|suwawi ing mangkin|dalu luru-luru||
+
+### 12.
+Kapal kang cinancang anèng (n)jawi|satungal binêdhog|ning niwakên dèn-sêlang sêdene|Ki Wuragil mèsêm ngling ambêkis|hus ah ingong suthik|
+
+ê
+
+### 12.
+moh jaran kuru||
+
+### 13.
+Golèka kang lêmu akalimis|bokonge kang popor|iku mênèk yèn ngapenginake|dimèn têgêl tyasingsun ngramuhi|yèn ora kadyèki|gajêg nora maju||
+
+### 14.
+Matur bok sampun mawi amilih|ingkang popor-popor|jampi ngotên bok sakapanggihe|inggih mangke ngupados yèn olih|ingkang mênis-mênis|Ki Wirya amuwus||
+
+### 15.
+Kapindhone priye yèn turanggi|panggarape mêngko|nora bisa ngodor satêmêne|lamun tan nganggo panggalak èstri|supaya kapengin|bisane tumanduk||
+
+### 16.
+Ronggèng bae undangên sun-wèhi|opahe sakêton|iya amung sun-wudani bae|dimèn guthulku bisa atangi|puluh isin-isin|mulya ta bae wus||
+
+### 17.
+Ki Nuripin mèncêp matur aris|mangke dalon-dalon|kados pundi inggih karaose|punapa taksih sangêt kang sakit|anauri maksih|matongtong saya buh||
+
+### 18.
+Yèn larane rada penak thithik|nora cêkat-cêkot|mau kae bilah buh rasane|larane wus nglumpuk dadi siji|lir dèn-iris-iris|ting slêngkrang ting srênut||Nuli nakmas Jèngraga nambani|godhongan maring ngong|rada suda sathithik rasane|bisa turu dhat-dhatan wak-mami|wusing ngimpi iki|atiku tan (n)jêkut||
+
+### 20.
+Saya dhangan mari ting salêngkring|nanging saya aboh|Ki Nuripin mèsêm myat bêncolèng|o lah niku badhe amèdosi|ethok mawi sakit|darapon katungkul||
+
+### 21.
+Kirang sadalu êngkas puniki|ngagyatakên cêplok|ngêthok dalah konthole mak grèwèl|awis-awis tiyang sagêd urip|Ki Wirya ambêkis|wis wong edan taun||
+
+### 22.
+Lagi mangkene (n)dadak mêdèni|si Dipangan-potho|matur gujêngan mung saenggane|yata ing wanci waktu Mahêrib|Ki Kulawiryèki|rêngkêng-rêngkêng wêktu||
+
+### 23.
+Ki Nuripin tan salat mring masjid|salat anèng pondhok|Mangunjana lan Mangunbrajane|tata kêlirira wong angringgit|anèng kori lêmpit|kinajang barukut||
+
+### 24.
+Gamêlannya Bèr-manis kinardi|wawayangan mangko|dhalang Gunawangsa wus rinuktèn|nulya maju saniyaganèki|mirit linggyanèki|wayange pinanggung||
+
+### 25.
+Bakda Ngisa ing wancinirèki|para ri agupoh|tata pagêlaran linggihane|wus dinuga uruting palinggih|kang para ngabèi|agêng alitipun||
+
+### 26.
+Miwah badhe saosan miranti|tan ana kasompok|pinurwèndah ing pandam sewune|ting daluwang puputêran ringgit|sri kinêmbang ngrawit|ing ijo bang biru||
+
+### 27.
+Tharik amyang ubênging pandhapi|kalangkung sri tinon|tutuwuhan tan kêna lum kabèh|sinalinan kang awilis-wilis|tan anguciwani|nir kang saru-saru||
+
+### 28.
+Yata kang salat ana ing masjid|sabakdanya gupoh|samya mudhun saking palanggare|sira Ke Kidang Wiracapèki|Jèngrêsmi Jèngragi|pangulu pra sêpuh||
+
+### 29.
+Jalu lênggah ana ing pandhapi|lir saban ana lor|lawan Jayèngrêsmi nèng kilènne|Jayèngraga pra ari nêpungi|nulya Mas Ngabèi|Wirancana lungguh||
+
+### 30.
+Sapangetan sakadangirèki|jèjèr tan ana doh|Mangunjana kang tan kênèng linggèh|pangruktinira sabarang-kardi|sira Jayèngragi|ingaturan kondur||
+
+### 31.
+Marang dalêm gya lèngsèr sing ngarsi|prapta lênggah alon|Nikèn Widaryati lon dêlinge|lah Widuri ya bojonirèki|turana mangering|ring pagêdhonganmu||
+
+### 32.
+Ladènana busana sarwa-di|yun nêmoni dhayoh|lah suwawi anakmas dèn-age|andika busana kang prayogi|sakadar dèsèki|amanggihi tamu||
+
+### 33.
+Aywa risak wandane pangantin|tinonton pra wong-wong|Jayèngraga tan lênggana ing rèh|nulya maring pamireyan aglis|lan garwa tan kari|angladèni kakung||
+
+### 34.
+Anèng pagêdhongan Ni Widuri|nutup kori rêko|Ni Widuri dahat wulangune|marang kakung anggubêl minta sih|sih luluting rêsmi|dahat sangêting kung||
+
+### 35.
+Jayèngraga mèsêm angewani|de tan kênèng anggop|kandhih adrêngira asmara rèh|dadya kadho-kadho tyasira mrih|linging tyas wong iki|bangêt tanpa kusur||
+
+### 36.
+Nora angon wêktuning aguling|dêstun têmên uwong|tan kaopan panane ngamêne|manawine tan paja mênuhi|dudu sabaèki|kêrêpe ambêrung||
+
+### 37.
+Jayèngraga ginubêl ing rabi|sakêdhap netra-ndon|langkung pamurihirèng karêsmèn|Jayèngraga ngaya-aya kapti|kang rayi ginuling|
+
+-
+
+### 37.
+ngakên tanpa kasur||
+
+### 38.
+Karsaning kakung amung nyarati|mring kang nora anggop|gagêlakan wus praptèng gatine|kaluwaran Widuri ngukuhi|maksih angrêrêngih|dèrèng onjotipun||
+
+### 39.
+Ingkang raka mèsêm sêmu runtik|tan salumrahing wong|kewala mèh kawijil dukane|aluwaran kang ara sarêsmi|Ni Rara Widuri|sangêt cuwanipun||
+
+### 40.
+Wusnya kalihe samya susuci|tinadhahan bokor|Jèngraga gya abusana pamèr|ngagêm nyamping prang-rusak kalithik|paningsêt cindhe jring|abara jênar byur||
+
+### 41.
+Arasukan bêlah-Bantên putih|kancing mirah kaot|arja kuluk kinanigarane|akris tinatah kinaturanggi|landheyan sinêmi|agagombyok dhuwung||
+
+### 42.
+Akakacu kumbaya kusta brit|sumping ron pinraos|akalpika tajug myang galigèn|jinêbadan ing garwanirèki|samya busana-di|wus samya linuhung||
+
+### 43.
+Ni Widuri mulat marang laki|jawil-jawil nyêthot|asasmita mumurèh kayun rèh|pamandênge lir sotyaning gangsir|tar kawawa mèksi|marang kakungipun||
+
+### 44.
+Jayèngraga mèsêm angarasi|sarwi ngandika lon|payo rara mijil wus kasuwèn|Ni Widuri nêdhêng anyênêngi|
+
+è
+
+### 44.
+smu tan wèh gingsir|Jèngraga gumuyu||
+
+### 45.
+Guyunira nêbut jroning ati|setan andrêwolo|karêpanê apa dèn-plok bae|ambakna wong bêlisên tan eling|andimêr ngiyêri|ngêcut angêthiwul||
+
+### 46.
+Nulya samya mijil Jayèngragi|alinggih karongron|nèng jarambah ngarsèng bu kalihe|Bokmas Wirancana Widaryati|angungun ningali|marang mantunipun||
+
+### 47.
+Pra èstri myang bojoning ngabèi|tuwa nom andongong|mulat marang Jèngraga baguse|ya ta ingkang lênggah nèng pandhapi|tan adangu prapti|para tamu-tamu||
+
+### 48.
+Sadayane kang para priyayi|samya têpung lunggoh|nèng pandhapa jèjèr saurute|tuwa anom agêng alit sami|busana di-adi|papamèranipun||
+
+### 49.
+Mèrèt mubru sacaraning nagri|dènnya nganggo-anggo|tan ana ri pêpak sadayane|dhalangnya wus wiwit dènnya ngringgit|jêjêr Ngastina Ji|lakon Sèmar mantu||Mangunjana rakit sugatèki|parentah marang wong|kasinoman kinèn naosake|pamuncangan myang pateyanèki|ramut sadayèki|ing saurutipun||
+
+### 51.
+Jayèngraga mijil sing wismèki|cingak sakèhing wong|lir bupati solah prabawane|tunggil kang raka dènnira linggih|pra paman ngingsêri|angombèri lungguh||
+
+### 52.
+Obah sadaya kang samya linggih|samya gawok tumon|marang Jayèngraga ing baguse|kadya Pangeran ing Pranaragi|lir Wirun tinulis|tuhu yèn binagus||
+
+### 53.
+Para pamèr ingkang ambêsusi|wiragane êntong|kabajonging Jèngraga baguse|miwah jroning wisma kang parèstri|samya ting karintip|myating sang binagus||
+
+### 54.
+Wus mangkana dènnira alinggih|rarakiting jagong|pra ngabèi kangsèn kasukane|atandangan sapundhuhanèki|ingkang suka pèi|kècèk kêrtu dhadhu||
+
+### 55.
+Cina kaja sakarsane sami|sagolong sareyom|kang tan pundhuh pan caturan bae|ana mênêng kewala alinggih|kan sêm amamacit|kathah warnanipun||
+
+### 56.
+Tan wus winuwusên ing pandhapi|yata kang nèng pondhok|Kulawirya angusadakake|Ki Nuripin sasontên angrukti|angambil kudèstri|pinarantèn sampun||
+
+### 57.
+Tuwin nimbali ronggèng wus prapti|jinatèn ing wados|dènsisiwoni ronggèng Ni Grèpèt|dhasar kuning kalukaran tapih|ngalela kaèksi|nyunyunge arungkud||
+
+### 58.
+Winiwir-wiwir kang angrongkobi|gatraning puputhon|katêlahan ing pandam cêthane|wela-wela walakang malêngki|kapipit kalêmpit|popoking apupu||
+
+### 59.
+Ronggèng tan polah ing ngolag galig|Ki Kulawirya non|marang ronggèng atutug ginape|karasèng tyasira asarêsmi|kang ngêndhorok tangi|eling gawenipun||
+
+### 60.
+Nuli binêkta ronggèng mring jawi|maksih ambolojod|praptèng gyanning jaran pinarantèn|angandika mring santri Nuripin|paran wus miranti|pitaya kinayun||
+
+### 61.
+Matur sarwi ngaturakên yiyit|kang kinarya nglunyon|payo sira mèluwa marene|matur botên kawula nèng ngriki|sampeyan pribadi|kaliyan bokayu||
+
+### 62.
+Lah wong pêtêng ngarah apa Ripin|payo ta marono|manawa na kuciwa prantine|blakan bae aja isan-isin|malah ya sirèki|kang minangka dhukun||
+
+### 63.
+Sasat sira ingkang ngusadani|iya laraningong|matur sandika kapêksa dene|atut pungkur mring gyanning kudèstri|karsane Ki Ragil|ambalabak kayun||
+
+### 617
+## Balabak  1.
+
+### 617
+Kulawirya wus prapti ing pamipitan|
+
+ê
+
+### 617
+nggonne|wus akukuh kudêstri tan bisa obah|jaranne|Ki Wuragil mathòngkròng nèng bokong jaran|prênahe||
+
+### 2.
+Ingêndhukkên ing gêmbok jaran ngêlèntroh|guthule|talèdhèke gya rinangkul ingambungan|pipine|pan kinarya panggalak amrih tanginya|cêluse||
+
+### 3.
+Nguyêl-uyêl susu sarwi ngêlus-êlus|gêmboke|dèn-sisilak pan sarwi cinènêng-cênêng|gambrênge|dènnya ngothah-othah pan sadhengah-dengah|pamriye||
+
+### 4.
+Dimèn sangêt manahe dènnya kapengin|pindhane|nulya ambêdêdêng tangi mangut-mangut|dhogole|gya tinamakakên marang gêmbok jaran|mak blêse||
+
+### 5.
+Angling ririh iki Ripin gocèkana|buntute|dèn-akukuh yèn ucul ambabit guthul|tan wande|wuwuhing larane dakarku kang mupung|ngodore||
+
+### 6.
+Nuripin pan kukuh anyêkêli buntut|bobate|bisa (ng)gêlur wus lunyu dening têtamba|mayare|nora krasa kinolonging lambe gêmbok|dakare||
+
+### 7.
+Panggalake talèdhèk tan kêna bênggang|si Grèpèt|pipi susu ciniwo aginogohan|nyunyunge|ngêsês-êsês ronggènge mèlu kepingin|wangune||
+
+### 8.
+Angling ririh dhuh Kenthol bok dhatêng kula|sênggane|kêdhap mawon kula pengin kagungane|rasane|dimèn suwe pangodhore mindhak wuwuh|ecane||
+
+### 9.
+Kae Kulawirya ngling apa mangkono|enake|matur inggih makaten wawi cinoba|ginêntèn|Ki Nuripin umatur lo lo puniku|angalèh||Wis kantênan mêlêng-mêlêng eca pisan|si Grèpèt|yèn sampeyan mindhak wêwah babarpisan|blaine|niku botên prasasat lading panyukur|landhêpe||
+
+### 11.
+Ngling ah nora tau ambêngang-bêngani|sabêne|nisthakake yèn cinacad ambêngangi|
+
+(
+
+### 11.
+m)bok jèjèl|ngling aêm biyang lae gèk mangsa iyaa|sanggupe||
+
+### 12.
+Wus unine dadine (n)jêlomprongake|mangkene|lo lo sampun-sampun kula sung pêpemut|yêktine|gluwah-gluwèh anggrèwèl mangsa sandeya|kablaèn||
+
+### 13.
+Ki Wuragil saya rèpèh dakarira|tancêbe|gya ginêlak banène akalukukan|gêlure|nulya mêmpêng mrakinding makênêng mêtu|kamane||
+
+### 14.
+Mung sabrolan kewala tan ngudhal-udhal|wêtune|gya linukar dakare mungkrêt lir lintah|klumpruke|ilang ting prakinting mung kari pêrih|jêrone||
+
+### 15.
+Tanganira Ki Kulawirya kang kiwa|pan maksèh|anggogohi nyunyunge ronggèng kalêproh|agabrès|matur ah (m)pun mangke ta tiyang asakit|raose||
+
+### 16.
+Inginggatan tangane galaprut ayit|ilêre|tan wèh lunga ronggènge anèng ngiringan|
+
+ê
+
+### 16.
+nggone|Ki Wirya ngling lah Ripin uwis uculna|buntute||
+
+### 17.
+Gumuywa ngling ngong-wastani dèrèng rampung|ngègrège|dèn-uculkên buntute akirig-kirig|jaranne|hèh Nuripin sira angambila banyu|dèn-age||
+
+### 18.
+Nulya naosakên toya nèng pangaron|ngarsane|Kulawirya wong roro lawan si Grèpèt|lèdhèke|samyandhodhok lah Ripin dimrene sira|dèn-age||
+
+### 19.
+Tangane kang kalêprèh rada rêkasa|gatêle|pan kinarya malirit ilining guthul|tanganne|linothokkên marang irunge Nuripin|mak-leno||
+
+### 20.
+Ki Nuripin anjêngat niki punapa|mak-lèdrèg|lah yaiku idune guthul lan nyunyung|
+
+-
+
+### 20.
+nge Grèpèt|de tanganku rada gatêlên sathithik|rasane||
+
+### 21.
+Ki Nuripin ambêkuh u u arusuh|polahe|pan sakala gatêl irunge kinukur|sag-èsèg|Ki Wuragil angumbah guguthulira|barêsèh||
+
+### 22.
+Ki Nuripin angumbah ing irungira|ge-age|Kulawirya gupuh wangsul (ng)gène jaran|karsane|tanganira dèn-asab ing gêmbok jaran|nulya ge||
+
+### 23.
+Tanganira dèn-asabkên gêmbok jaran|marine|hèh Nuripin mreneya iki lo tamba|marine|lah irungmu ampêlna ing turuk jaran|bêcike||
+
+### 24.
+Dimèn mari irungmu nora mêrkotok|ningane|lamun nora mangkono blotongên bae|lo kiye|sarwi nguculi tatali ingkang wuri|palange||
+
+### 25.
+Ki Nuripin jinorogên garêjêgan|arame|pan pinêksa jinoroggên marang bokong|
+
+-
+
+### 25.
+nging jaran|pan katanggor ing buntut sigra pinêngkal|dhêngkule||
+
+### 26.
+Sru mak-gapruk (n)jêlèh sambat adhuh-biyung|sambate|bilah setan lara têmên kok mangkono|guyonne|mêngko uga sun sobyang-sobyangkên marang|wong akèh||
+
+### 27.
+Ki Wirya ngling lah iya-iya jajalên|sobyangke|dak-pênthungi cocotmu kang kongsi ngalèh|janggude|Ki Nuripin grundêlan sok anglarani|guyonne||
+
+### 28.
+Ki Wuragil Kulawirya angling malih|wuwuse|lah wis Ripin uculna jaranne iku|dèn-age|ya olèhmu ambêdhog mau ing ngêndi|jaranne||
+
+### 29.
+Mèsêm matur inggih pangulu Sradênta|kang darbe|wau akèn ngupados kapal kang lêma|turene|pan puniku inggih kapal lêlampahan|anggènne||
+
+### 30.
+Kula mêndhêt nèng kandhang tan wontên uning|tujune|Ki Sradênta wontên ngajêngan kewala|tan mulèh|lah kapriye olèhmu angulihake|mêngkone||
+
+### 31.
+Inggih dipun-culakên kewala ngriku|latare|ya wis mara tuntunên lah ulihêna|dèn-age|Ki Nuripin sigra dènnya nuntun jaran|lampahe||
+
+### 32.
+Gobar-gabèr tan mênêng-mênêng kikirig|jaranne|Kulawirya karasa dhanganing lara|sênggange|malbèng wisma lan ronggèng maksih winuda|blêjêde||
+
+### 33.
+Ki Wuragil rêmên ningali nyunyunge|mathise|sarwi tanya apa sira durung manak|de kuwe|maksih sarwa salêkak tan ana rênggang|kupênge||
+
+### 34.
+Mung grumbule kêkêncêng kaya kukuncung|anggawès|lêluntare isih anyigar panjalin|ingkême|Grèpèt matur msêm dèrèng anglampahi|bablêngèh||
+
+### 35.
+Mila sabên tiyang angalêm nglangkungi|raose|Kulawirya tyase sumênut kapengin|mring Grèpèt|ronggèng matur lah cobi inggih sakêdhik|raose||
+
+### 36.
+Gumuywa ngling ah ora yèn lara manèh|mêngkone|lagi mari tatomba angrasa waras|sakiye|nulya Ki Nuripin sêgu-sêgu prapta|banènne||
+
+### 37.
+Ki Wirya ngling Grèpèt marêpa ing lawang|bênêre|ya sêmbari ngadêga bae bèn katon|sing kene|cinolokan ing dadamar mrih tetela|nglelane||
+
+### 38.
+Tinimbalan Nuripin sira mreneya|dèn-age|nulya mêngakakên ing lawang Nuripin|rêgèdèg|myat wong wuda nyunyunge kêtara gambrêng|jêmbrunge||
+
+### 39.
+Mak-cêngkelak anêbut dubilah setan|mênthule|Ki Wuragil alatah anon Nuripin|sêbute|wêkasaning panêbut nganggo amênthul|basane||
+
+### 40.
+Nulya kinèn tatapiyan ronggèngira|gya tapèh|Ki Nuripin tinimbalan malbèng wisma|nulya ge|praptèng ngarsa Ki Wirya maksih gumuyu|kêkêle||Ki Nuripin kacêmutan sêmu isin|ulate|angandika Ki Wuragil Kulawirya|wuwuse|hèh Garèpèt sun atakon marang sira|yêktine||
+
+### 42.
+Kaya wong kang (m)bêngangi iku kang apa|mawane|lah manira tuturana kang balaka|yêktine|mêngko sira sun-ganjar wang limang suku|kathahe||
+
+### 43.
+Ronggèng Grèpèt matur mèsêm aprasaja|wadine|lamun tiyang sampun watak anyakiti|sabêne|kathah mawon walêre lamun ginarap|jalêre||
+
+### 44.
+Botên kenging sarêngan mêdaling mani|campuhe|yêkti ambêngangi inggih lir sampeyan|sakite|lawan sampun anggarap yèn tangi tilêm|sakite||
+
+### 45.
+Yèn pinarêng sakite ngruntuhkên watu|adade|sampun mêksa tiyang ingkang botên purun|ing nganjèn|lamun sakit malênthing kadya sulêdên|malênyèh||
+
+### 46.
+Lamun (ng)garap sampun rêmên myating gêmbok|binênjèng|lamun nuju sakite bêngang amunjuk|sabênne|lan hya ngathah-athahakên tingkah polah|kasuwèn||
+
+### 47.
+Nêlasakên rekane sadhengah-dhengah|bungahe|lamun sakit rajasinganên mring badan|kudhise|lawan malih (ng)garap aywa dèn-dhêngakkên|guthule||
+
+### 48.
+Pratingkahe jèngkèng ngêboti ing ngandhap|bongkote|pucuk guthul andêdêl bathuk kêkêmpung|prênahe|lir katanggor-tanggor tulang palanakan|pangglure||
+
+### 49.
+Kang puniku yèn pinuju sakit kathah|bêngange|guthul konthol mêtu yèn waras tinamban|angalèh|marang mata irung samya buh (m)bêrarang|sakite||
+
+### 50.
+Lamun waras tinamban bêngange ngalèh|abuhe|planjêr (n)duduk myang sadhengah abuhipun|
+
+ê
+
+### 50.
+nggonne|mantun-mantun angalèh yèn sampun tiwas|cacade||
+
+### 51.
+Kadhang tiyang nuju pêsthi apês pêjah|umure|Ki Nuripin anjola gèdhèg anêbut|(n)dharindhil|e e tobat aja katêma-katêmu|lir kuwe||
+
+### 52.
+Ki Wuragil mèsêm gagêtun angungun|driyane|sarwi muwus wong wiwitan bêngang iku|kapriye|Grèpèt matur awis-awis kang tan bêngang|brancahe||
+
+### 53.
+Kajawi kang wus uning paekanira|sarate|kang walikan ingkang tunggil tilêm mulya|lan lonthe|sumimpange wawalêr wau punika|rinêktèn||
+
+### 54.
+Yèn anggarap ywa mrih sakecaning ngèstri|garape|yèn èstrine amada botên sakeca|raose|kang makatên tamtu botên ambêngangi|adate||
+
+### 55.
+Sampun kêkathahên polah mênthang nyunggar|sirige|kêdah dipun-sajojorakên kewala|pupune|guthulipun sagêlêm-gêlême dhawak|tancêbe||
+
+### 56.
+Kang kapara mangisor konjêm tan kandhas|jêrone|lan kang botên karaos katanggor-tanggor|guthule|nadyan dangu sampun ngantos mêdal mani|kajênge||
+
+### 57.
+Kang makatên asring lujêng botên sakit|bêngange|sabab èstri sampun ngrasa tan sakeca|kêmbane|kajawi kang mawi sarat sakarsane|angègrèg||
+
+### 58.
+Samya mèsêm Ki Wuragil lan Nuripin|guyune|angling malih yèku kang ginawe apa|sarate|myarsakakên kandhane ronggèng si Grèpèt|crêmêde||
+
+### 59.
+Grèpèt matur uning kula inggih gampil|tan angèl|saratipun ulêr turi brambang jlantah|kinècèk|ingusapkên guthule ingkang waradin|konthole||
+
+### 60.
+Lamun tamban damêl sarat (ng)gih makatên|prantine|winastanan lisah cèlèng (ng)gih punika|yêktine|sawabipun ing sarat awis ing sakit|bêngange||
+
+### 61.
+Kruma tan tumama mangan guthulira|angêlèng|yèn kasusu jlantah kewala alothung|blonyohe|Ki Wuragil manthuk-manthuk pan anyathêt|ing gotèk||
+
+### 62.
+Ki Nuripin mèsêm e yah olèh gawe|kyaine|mandah apa wus wruh sarat ngiwut-iwut|peyore|Ki Wirya ngling yèn amuwusi mêngkonok|kobêre||
+
+### 63.
+Baya besuk modar ilang sêmbranane|Di-lèngèng|atatanya malih mring ronggèng si Grèpèt|gêmête|kang (m)bêngangi iku maune kêpriye|mawane||Kaya ngapa wiwite wong ambêngangi|maune|lah tutura Grèpèt kabèh sarandune|blakane|matur lamun kêrêp jinajah wong akèh|kang ngègrèg||
+
+### 65.
+Anom tuwa myang jajaka dèrèng pasah|anjèjèl|kêdhikipun yèn wus kambah wong salawe|watêse|inggih sampun kadhang ginarap nyakiti|bêngange||
+
+### 66.
+Sabab campuhipun kamane wong akèh|kuthuhe|barkat kêrêp tiningkah sakerah-kerah|jojoge|dados uwêlipun ing nglêbêt agudhig|
+
+-
+
+### 66.
+wêsine||
+
+### 67.
+Nèng jajambu tulang talanakan nginggil|
+
+ê
+
+### 67.
+nggone|yèn ginojog sangêt lir gudhig kinukur|gatêle|dangu-dangu gudhige amêtu ilu|nêrècès||
+
+### 68.
+Tumamane ngêntèni wêtuning kama|karone|ilu campur ing kamane jalu èstri|nulya ge|kang mangsuking dakar dados sakit bêngang|wastane||
+
+### 69.
+Ingkang mangsup dhatêng ngèstri dados gudhig|tunggile|tiyang èstri awon yèn sampun anggudhig|tigang (ng)gèn|kang rumiyin manggèn jajambu kang nginggil tlanake||
+
+### 70.
+Kaping kalih anèng uwêl kanan kering|gudhige|uwêl ngandhap ingkang datan gudhig-gudhig|dangune|kang winastan landhêp tan kêna ingambah|ampuhe||
+
+### 71.
+Lamun sampun makatên ênggènne gudhig|ampuhe|nèh yêktosi tiyang satêngah ginarap|tinakèn|kaya priye rasane kowèkan blotong|kapriye||
+
+### 72.
+Lamun matur ujêre akêri gatêl|raose|kang puniku utêre wong ambêngangi|adate|Ki Wuragil suka ing suruping atur|driyane||
+
+### 73.
+Ki Nuripin gawok malêngak miyarsa|juntrunge|lingnya êng wong uwis alim-alim guru|bakyune|nora nana wong wadon kaya bok Grèpèt|rèntèse||
+
+### 74.
+Wus mangkana Ki Wuragil mundhut arta|kathahe|limang suku pinaringakên mring ronggèng|si Grèpèt|kang sinungan nêmbah-nêmbah langkung nuwun|ature||
+
+### 75.
+Nulya kinèn wangsul mring panggonannira|waune|wus tur pamit rinilan anulya kesah|ronggènge|Ki Wuragil wus tingkas tan na karasa|larane||
+
+### 76.
+Wus rumangsa bisa mulih saking paran|mangkene|dene kanang lêlara waluya jati|ing tyase|suka bungah datan sah andhandhanggula|mulyane||
+
+### 618
+## Dhandhanggula  1.
+
+### 618
+Lir punagi driyanira kadi|mina kasatan kalaban toya|gambiraya pasabane|nir kang prihatinipun|angandika marang Nuripin|ya ta lah tanpa nyana|yèn bisa gumuyu|nastitijab impening tamba|lawan barkahing luluhur kang ngwonèni|manulak pancabaya||
+
+### 2.
+Matur inggih Alkamdulilahi|punapa sampun asênggang pisan|dene cêsplêng tan ming-kalèh|Ki Kulawirya muwus|iya uwis larane mari|namung ijih-(n)darawas|tan pati kur-ukur|cêkêle wus kadya saban|pandungèng-wang wus kêna kinarya linggih|jagongan mring pandhapa||
+
+### 3.
+Manirèki karasa yun bukti|sira munthuta bucu sadhela|mring anak Mangunjanane|Ki Nuripin agupuh|mentar mundhut saosan bukti|Mas Mangunjana sigra|nuduh pawongipun|anaosakên rampadan|nuli kèrit mring Nuripin praptèng ngarsi|nadhah Ki Kulawirya||
+
+### 4.
+Lalawuhan tan ana dinimik|namung dhèndhèng gêpuk lan bakaran|lan paru tan ana manèh|dènnya nadhah pikantuk|nutug nulya luwaran wijik|ambêng wus cinarikan|sinungakên sampun|mring Nuripin gya amangan|lam-ulaman maksih wutuh dèn-ijèni|tanganne lir bonangan||
+
+### 5.
+Nora nana kaliwatan siji|ulam ladèn para tutumpêsan|padha bae pamamahe|kabèh kari kur-ukur|Kulawirya gumuyu angling|iki apa gilingan|apa bagor untu|wong amamah ora lumrah|kaya gunting pilang-pilang ora ail|sêmpal wange mamangan||
+
+### 6.
+Dêlah nyawane lumayu ngênthir|giris ragane lamun mamangan|yèn wis mangan bali manèh|nyawane wilang cumbu|lagi têka anggêndring maning|wong kasinoman samya|myarsa agumuyu|Nuripin ririh grundêlan|
+
+ê
+
+### 6.
+ndêlêna yèn gêgarap mêmoyoki|anyandra wong mêmangan||
+
+### 7.
+Wisuh sarwi kèn-ngundurkên aglis|gya ingundur marang kasinoman|tangane mêksih angranggèh|nyambi panggadhonipun|Ki Wirya ngling e e Nuripin|setan-alas idêran|sèwotên wong iku|lir tan kaopan jêjêlag|satingkahe wong edan ngisin-isini|dhulang jabloggên pisan||
+
+### 8.
+Ki Nuripin mèsêm dèn-dukani|matur kalong sapintên punika|maksih akathah tunggile|ingkang sami kinrubut|mêntah matêng kang maksih urip|jaganipun punika|kêndhuri sadarum|tan milih kang cicik cucak|Ki Wirya ngling wong gêmblung bisa madoni|ambêrung nora tata||
+
+### 9.
+Matur sarwi gumuyu Nuripin|botên sampun limrahing akathah|gadhah lêrês dhewe-dhewe|saya samya gumuyu|kang ngaldèni mulat Nuripin|wus mundur kang rampadan|gya dhadharan maju|sarta sapateyanira|sinaoskên mring ngarsa tinata nuli|Ki Ragil Kulawirya||
+
+15 ( Pahargyan sakalangkung ngedab-edabi) V. Pahargyan sakalangkung ngedab-edabi. Abên-abên sawung tuwin gêmak kasambêt tayuban. Kidang Wiracapa nêpangakên Puspagati kaprênah wayahipun ingkang wuta- sastra, nanging kathah kasagêdanipun: bêksa, karawitan, ukir-ukiran, anam- anam lss. botên wontên padamêlan ingkang botên sagêd, mila pangawulanipun ing Pranaraga sakalangkung kinasihan dening Kangjêng Bupati. Ing sarambi mêsjid Kidang Wiracapa anggêlarakên pokokipun ngèlmu kakekat dumunung ing panrima kanthi katrangan miradipun, sarta conto-contoning agêsang têbih saking panarima lan suka nampi pawèwèh. Lajêng sami mandhap dhatêng pandhapi, tamu pêpak andhèr. Sêgahan mêdal ambanyu mili kalêbêt arak waragang. Siyangipun kawontênakên lêlangên abên sawung, abên gêmak. Sadaya mawi toh-tohan sakêlangkung ing ramenipun. Para botoh ngatingalakên kawêgiganipun murih sawungipun mênang. Totohan têtêmpilan andadosakên rame, wontên ingkang pasulayan. Kasaru dhatêngipun tiyang/mbarang Panglir, wontên tiyang sawidak lajêng katanggap sarta kadhawuhan wiwit, têtandhingan tiyang mawi sanjata. Kasêling dhahar kêmbul, Kidang Wiracapa rêraosan kalihan Kulawirya bab purwaning agêsang kadidene tiyang salat maos takdir murih wilujêng dumugi ing akhiripun. Sontên sami bibaran, sami marêm manahipun ingkang gadhah damêl. Kaca 114 – 139 618 Dhandhanggula 10.
+
+### 9.
+Abusana sarwa pinrayogi|nyamping kawung-gêng bratayuda|adhêstar parang-rusake|sabuk cindhe bang mungguh|arasukan sêmbagi putih|mèpèt kadya jajaka|ing wanci wus dalu|Ki Wuragil Kulawirya|wus busana ngandika marang Nuripin|payo marang pandhapa||
+
+### 11.
+Nulya lumampah lawan Nuripin|praptèng pandhapa anunggil lênggah|lan putra kang pinangantèn|cingak kabèh kang tamu|mulat marang Kulawiryèki|Jèngrêsmi Jayèngraga|mèsêm dènnya (n)dulu|Kae Kidang Wiracapa|langkung suka ningali marang Ki Ragil|alon dènnya ngandika||
+
+### 12.
+Punapa sampun sênggang dhi Ragil|sokur tan kalajêng gêrahira|Ki Kulawirya ature|barkah paduka nêngguh|anyawabi lêjaring sakit|gumuyu Kaè Kidang|Wiracapa muwus|mring sakèhing tamunira|(ng)gih punika kang kula-pajar duk wingi|pênêd samya wanuha||
+
+### 13.
+Matur inggih sakèhing têtami|samya nambrama pambagyanira|ing patêmon wilujênge|winangsulan kramèng yun|wiluyaning sih binasuki|susila ing pasoran|rahaping ngapagut|pra tamu micarèng nala|nora jamak santri sajake mriyayi|padha awanda-wanda||
+
+### 14.
+Kang sawiji iku nora pati|karsa nganggo kang sarwa nyar-anyar|nging cahyane sêmu dhewe|tan kadya roro iku|wus abagus paramèng kawi|solahe awiraga|amangun tumênggung|Jèngraga sang pinangantyan|mangkana ing pangalêmbananirèki|marang Ki Jayèngraga||
+
+### 15.
+Yata ing wanci wus têngah wêngi|Mas Mangunjana sigra parentah|marang wong kasinomane|kinèn mêdalkên gupuh|pangruktine saosan bukti|jinodhangan rinampa|linadèkkên sêlur|wus pininta kêmbulira|nyamikane cinarik sinung pêmburi|tinadhah pawong rencang||
+
+### 16.
+Wusnya ramut mundur kang ngladèni|Ke Kidang Wiracapa ngandika|nak Mangunjana pênêde|dhalange kinèn suwuk|dimèn rèrèn ênèh ngingoni|sadhela ngong angalang|niyagane niku|kèn-muni gêndhing La-êla|lawan gêndhingira kinèn anggêndhèngi|enak padha arasa||
+
+### 17.
+Tur sandika kang liningan aglis|dhawah niyaga wus rinumatan|sigra muni gamêlane|lan ronggèng sindhèn ngungkung|Kaè Kidang Wiracapa ngling|suwawi wiwijikan|kang liningan gupuh|adan lêkas samya nadhah|Mangunjana parigêl ngidêrkên larih|arak-tape waragang||
+
+### 18.
+Wus dinuga dawêg ing ngalarih|madyaning atadhah ing inuman|winantu-wantu larihe|mi suka tadhah nginum|pra ngabèi pikantuk bukti|karasa winaragang|samyènggaring kalbu|rongèhing lalungguhira|ingkang cêthèk amurwaka purwakanthi|tur ta tar wruh ing kitha||
+
+### 19.
+Puspagati gambira dera ngling|adhi Mangunjana eman-eman|nginum arak nora èrèk|tan na kuciwanipun|gêndhingane wus dèn-gêndhèngi|kakondhanging wong lanang|nèng kalangan agung|anunggang ronggèng rinêngga|(ng)gih makatên dhi Mangunjana kang bêcik|gêr ginuyu ing kathah||Kè Dêmang Kidang Wiracapa ngling|nunggil sa-ambêng lan ingkang putra|Jèngrêsmi Jayèngragane|katri Kulawiryèku|sadayane samya ngalihi|Mas Dêmang Wirancana|pakêmbulanipun|dyan Ngabèri Mangunbrata|lawan Radèn Wijangkangka Angabèi|cêlak lan ingkang uwa||
+
+### 21.
+Kaè Kidang Wiracapa angling|puniku dhi Ragil Kulawirya|kaelokaning Hyang lire|Puspagati puniku|prênah putu-misan lan mami|kalangkung kinasihan|ing pamagangipun|marang (n)Jêng Pangeran Kutha|sabab sarwa sagêd sabarang pakarti|atatas ing wicara||
+
+### 22.
+Tur ta datan sagêd maca ngaji|nanging sabarang layange bisa|paham satêmbung-têmbunge|yèn muwus lir wong putus|tur tan wruh ing aksara siji|mulane kinasihan|kèh pagunanipun|ngundhagi mandhe ngêmasan|andondomi mangun ukiran angukir|anggêndhing bisa bêksa||
+
+### 23.
+Andhalang purwa gêdhog karucil|nganam-anam karya suri jungkat|myang bathik anênun ngantèh|karya jala ambubut|amarangi miwah angundhi|tuwin nanêgar kuda|katurangganipun|sabarang pakaryan bisa|pinaringan pangan binlanja ing Gusti|miwah sandhanganira||
+
+### 24.
+Samajade puniku asugih|suprandene tan bisa bêbêdan|sugih gawe tanpa gawe|tur niku tani yutun|tan botohan datan madadi|ngamungakên num-inuman|ing sawawratipun|duk anèm tumêkèng tuwa|dènnya magang inggih Radèn Puspagati|kalintang musakatnya||
+
+### 25.
+Kang sinung-ling samya anor-ragi|sarwi ngantu-antu ing atadhah|dadya sami ngene-ene|wus sabên adatipun|lamun bukti sinambi angling|pinrih kêdhik antara|
+
+-
+
+### 25.
+nira atatuwuk|wus tutug dènnira nadhah|aluwaran ambêng cinarikan sami|sinungkên pawong rencang||
+
+### 26.
+Gantya dhaharan lumadyèng ngarsi|samya sasambèn sasênêngira|myang larih tan na anggo pe|Jayèngrêsmi umatur|ing liripun kadi-punêndi|kaelokaning majad|kang wau puniku|kang rama alon ngandika|wikan lêrês lêpate pamanggih-mami|ingkang kadya punika||
+
+### 27.
+Kasugiyaning Kang Maha Sukci|jinaiskên marang kita sama|kawan prakara dununge|ingkang kinarsan sinung|kasugiyan dera Hyang Widdi|kang dhingin kasugiyan|ngèlmuning Hyang Agung|sinungkên mring kang kinarsan|kaping kalih kasugiyan Hyang Malêwih|kang muslim ing atapa||
+
+### 28.
+Sinungkên mring kang kinarsèng Widdi|kaping tiga kasugiyaning Hyang|kal-donya rajabranane|sinungkên kang kinayun|ping pat kasugiyaning Widdi|kabisaning pakaryan|sinungkên kang kinayun|tan pae sihing Hyang Sukma|ngèlmu tapa donya kabisan pan sami|sinungkên kang kinarsan||
+
+### 29.
+Lamun ta maksih kita puniki|sinung kasugiyan sapanduman|saking salah sawijine|sokur marang Hyang Agung|maksih sinung pratandhaning sih|pintên banggi dhaupe|kasugiyanipun|Jèngrêsmi alon turira|dhaupipun kawula nyuwun jinarwi|Kè Kidang Wiracapa||
+
+### 30.
+Angling (ng)gih dhaupirèng kadadin|kasugiyan kang kawan prakara|ngèlmi dhaup lan tapane|lir antiganing sawung|antigan kang upami ngèlmi|ingangrêm lawan tapa|amrih têtêsipun|kasidan marang kamulyan|mêngku rahmad karamad mangsa utadi|adi-adining titah||
+
+### 31.
+Kang punika titising ngaluwih|lir pamore têmbaga lawan mas|tan kenging lamun pinae|dadya suwasa mancur|tunggal sorot tunggal galigin|wusing saparipurna|
+
+-
+
+### 31.
+nira ing ajumbuh|saking kadhaupanira|wus tan ngaran tapa tan ngaranni ngèlmi|wus jumênêng karamat||
+
+### 32.
+Ngudi atur saprakawis malih|Kè Kidang Wiracapa lingira|kang saprakawis dhaupe|kal-dunya yèn wus dhaup|angling agni dèn-babayuni|agni pama kal-dunya|kabisan lir bayu|tuntume guna sarasa|satètèsan tumamèng pupuk kaywaking|ngobarakên wanarga||
+
+### 33.
+Tan ana kang kaduga mamati|pan dadine brama ingididan|baywagni pangupayane|ambrastha ing sawêgung|purna pari warèng wanadri|ngêningkên ing pinangka|kalih-kalihipun|wus tan ran guna sarana|kasidane si sikara kang sisiwi|santosa mêngku praja||
+
+### 34.
+Lamun datan makatên dhi Ragil|kang wus kawistarèng kanyata-an|kawula ing ngambagine|kang tapa datan ngèlmu|ing ngèlmu datan dèn-tapani|dadya karo kuciwa|lamban kalihipun|myang kang sarana tan guna|kang aguna tan duwe dunya sadêmi|wus ngamarat ing dunya||
+
+### 35.
+Tinimbang lan wong kang tan binagi|kasugiyan kang kawan prakara|malarat tanpa ngèlmune|lan tanpa tapanipun|tanpa dunya tanpa gunèki|angur kang binagiyan|wontên lothungipun|yèn sampun tan binagiyan|kasugiyan ing dalêm salah sawiji|sasat dèn wising Sukma||
+
+### 36.
+Jayèngrêsmi gumujêng aririh|miwah ingkang rayi Jayèngraga|Ki Ragil latah guyune|samya kapatuk kalbu|saking sukanira myarsa ngling|Kè Kidang Wiracapa|ragya sru anguwuh|maring kang mêntas rinasan|e lah putu-putu Radèn Puspagati|punapa ing samangkya||
+
+### 37.
+Kang ginarap karsaning ing Gusti|kang liningan santak aturira|pun êmbah andangu mangke|pakaryan kula wau|karsanipun (n)jêngira Gusti|mangkya karsa gamêlan|salendro pinatut|mêndhêt nêmipun Paradhah|pelog lawan salendro nême sinami|kula kinèn anglaras||
+
+### 38.
+Lan andikakakên mangun ngukir|landheyan gêng katrap ing curigan|lan kinèn ngrapèhkên badhe|titiyan saking Kêdhu|pun Erawan dhawuk gêng inggil|kalangkung kinasiyan|ginêdhog nèng ngayun|tinêdhakan dalu siyang|dhawuhipun kinèn anggêlak tumuli|kinarya miyos watang||
+
+### 39.
+Liyanipun sasambening kardi|
+
+ê
+
+### 39.
+mbah inggih kathah kewala|Kè Kidang mèsêm dêlinge|punika babaripun|ingkang putra umèsêm mèksi|Ki Wuragil guyunya|bisik-bisik muwus|mring kang putra Jayèngraga|yèku ingkang aran Radèn Puspagati|tuwompong basa êmbah||
+
+### 40.
+Mring kang Dêmang Jèngraga nauri|sadasa tiyang wus awunira|ya ta lah mulane kuwe|dangu dènnira muwus|wontên pawong èstri turnya ris|ngaturi Jayèngraga|kondur ing dalêm gung|anulya lèngsèr sing ngarsa|praptèng wisma Nikèn Widaryati angling|marang Ki Jayèngraga||
+
+### 41.
+Lah punika rayinta Widuri|wontên sakite tan sagêd lênggah|kula kèn-guling marmane|karaos sakitipun|sakitira Nikèn Widuri|prayogi pinariksa|anakmas sumusul|myat ari nèng pagulingan|Jayèngraga api gêpah matur inggih|batine mèncêp ewa||
+
+### 42.
+Gupuh lèngsèr maring jinêm-wangi|praptanira ing pagulingan|sinandhing kewala sare|Widuri taksih ngukruk|pangukruke atos kang ati|dangu tan panggyèng raka|tambuh raosipun|abêbêg rêmêk tyasira|kadya lara sèwu mêtêk anêkani|wiyang puyang-payingan||
+
+### 43.
+Dupi kang raka prapta aguling|Ni Widuri lir wong kabêndana|luwar saking pusarane|cumêplong sukèng kalbu|gumaregah ngrangkul ing laki|kadhuwêtan gya-agya|alukar pipinjung|anggujêg minta asmara|Jayèngraga mèsêm ewa ngliring rabi|lah apa jêrku apa||
+
+### 44.
+Lara kaèmêngan (ng)gigilani|polahe lir wong kêna ing dalan|andèlamèh nora lèrèh|lir kucing nêmu tikus|cêk-wêl bae tan wigah-wigih|Ni Widuri ngrêrêpa|paworing ngalulut|Jèngraga jêlèh tumingal|anggung gawe ginujêg raina wêngi|ngorot-orot pinêksa||
+
+### 45.
+Kêthêmplèng-kêthêmplong anuruti|Jayèngraga salulut lan garwa|nutug sapolah-tingkahe|marambahi langkung yun|tan cinatur kang andon rêsmi|yata kang nèng pandhapa|eca dènnya lungguh|nginum sinambi kasukan|miwah ingkang sasêrètan kèh winarni|Kè Kidang Wiracapa||
+
+### 46.
+Ngliring sakèhe kang sami linggih|nak-putu-ngong tan mangêni karsa|punapa ing sakarsane|punapa sami mundur|kula-turi lalangyan arip|manira yun mawisma|wêktuning aturu|ingkang liningan turira|pan sumangga ing prayoginira mangkin|tan wontên kang sumêlang||
+
+### 47.
+Jayèngrêsmi lan Kulawiryèki|aprasabên mring pondhokanira|rinojong lumèngsèr age|Kidang Wiracapèku|lan Mas Dêmang Wirancanèki|samya mèlêbêng wisma|miwah kang pra tamu|kundur marang ing pondhokan|salong maksih sinambi botohan sami|anêningali wayang||
+
+### 48.
+Tan winuwus tatasing aratri|bêdhol kayon wisan kang awayang|wus rinuktèn saopahe|kang para ri agupuh|nuding pawong rencangirèki|mamangun ing pandhapa|anyulami sapu|latar nulya rinêsikan|miwah kasah kang rêgêd dipun-salini|lampit kalasanira||
+
+### 49.
+Ramut sadaya dènnya mrayogi|pulungguhan tan ana kuciwa|Mas Dêmang Wirancanane|anèng sabênne lungguh|ingkang bakda salat pra sami|anèng ing palanggaran|pan eca alungguh|Kè Kidang Wiracapa jar|marang ingkang putra kalih malimpingi|masalahing ngagêsang||
+
+### 50.
+Kang cinatur gunêming aluwih|kalêpasaning tyas mring kasidan|poking ngèlmu kakekate|anakmas kang binagus|ing ngagêsang kêdah nunggèni|angluluri kang wus man|purwakaning dangu|amung dununging panrima|ingkang dadya têlêng lautira budi|mèt marta parinpurna||
+
+### 51.
+Jayêngrêsmi umatur angudi|kadipundi inggih miradira|liring panarima mangke|kawula anunuwun|ing wuwulang (n)Jêngira Kyai|Kè Kidang Wiracapa|alon dènnya muwus|dununge ing panarima|namung budi tinokitakên kang suci|tan cambor ing Asya-a||
+
+### 52.
+Wus anungge marang ing sawiji|wijiling trang anggana musthika|ngèsthi waskithèng papêsthèn|kang pêtha kang tinêrus|tan rambatan èndha upami|tan minta tan pininta|tan ayun-kinayun|datan kanthi tan priyangga|lire tanpa kanthi talêmpik tan milih|tan angêntèni papan||
+
+### 53.
+Liripun tan priyangga puniki|tan mangeran marang niyatira|amênampêg kaanane|
+
+è
+
+### 53.
+nthèng kalawan wahyu|tan piniyat kumambanging sih|kang wus tanpa karana|kawisisèng wahyu|ingkang aran panarima|inggih wahyu dyatmika kananing kadim|asimpên ing kadadyan||
+
+### 54.
+Jayèngrêsmi apagutan kapti|ciptanya ge-age adungkapa|ing makaming panrimane|lir dhèdhère sinawung|parèpèyan dèn-mamacaki|miwah Ki Jayèngraga|kapasèng tyas ngungun|ngunandika jroning nala|kapan baya têkèng panarima mami|mimikaning pandaya||
+
+### 55.
+Jayèngraga lir parawan sunthi|anatmatèng ing crêmin winangwang|branti myat wawayangane|panggagasirèng kalbu|kadya gèya praptèng birai|Ki Wuragil tyasira|kewala angungun|tangèh (n)dungkap ing atampa|lon turira punapi wontên bedaning|trima lan panarima||
+
+### 56.
+Kae Kidang Wiracapa angling|tan pae ananging kinerata|nanging beda bênikane|mangisor lan mandhuwur|panarima maring panginggil|inggil wêkasanira|kalamun panuju|tarima maring mangandhap|kandhap wêkasane yèn pinujunèki|lire basa punika||
+
+### 57.
+Kang wus kalampah limrahing janni|winèwèyan sandhang lawan pangan|kalangkung gêdhe trimane|ciptane wus bêgjèku|muga ana kang wèwèh malih|dak-trima kongsi ngayang|lêganing atiku|makatên kaprahing janma|kados kula ngarsa-arsa siyang ratri|pawèwèhing sasama||
+
+### 58.
+Lir wong cilik ngawula ing Gusti|ngarsa-arsa mugi ginanjara|arta sandhang lan pangane|kang tanpa krana iku|cipta tansah bruwun ing Gusti|ngalamat wong cilaka|pangawulanipun|utawa kongsi matura|nadyan canthèl atur anuwun paparing|saking karepotannya||
+
+### 59.
+Pangrasane wêlas gya sinung sih|ing Gustine katon kinasihan|têmah muwuhi repote|nadyan pikantuk sinung|gusti kucêm ewa ing galih|kawangwang sajêgira|kaêjising kalbu|dinok sor-soring kawula|panganggêpe Gusti lir ulêr (m)bungkêri|tumingal wong mangkana||
+
+### 60.
+Yèn kaplantrang tiwasing aurip|wêkasane dadya pèndhèk tangan|saking apês ihtiyare|lothung têmahan kathung|amba bathok ngathung nèng margi|trima picis dawiran|sak-êlêdan puluk|sasuwèk sandhang momohan|kacuthêlan mupus cipta canthing jali|cibukna ing sagara||
+
+### 61.
+Ya mung olèh saisining jali|kang puniku dhi Ragil wong nrima|jalar karêm ing pawèwèh|bungah trimah yèn sinung|yèn tan sinung tan wande ngêmis|malarat salaminya|tan têma-tinêmu|prasèjèn tanpa narima|datan arsa minta pawèwèh sasami|wawadul karèpotan||
+
+### 62.
+Kaplantrange ing panarimèki|lamun darbe melik nambut-karya|lamun winèhan awèwèh|tan ngilang-ilang surup|datan labêt watak nunani|lamun ana pawèhan|rob pamalêsipun|lumuh kamalan lan cidra|lalu wèwèh ngamal pinrih jaring tinggi|tan arsa pèndhèk tangan||
+
+### 63.
+Tiwasing panarima kadyèki|maksih prawira traping agêsang|patine plês abuburoh|pinilalah mimikul|lalu lampus tan sudi ngêmis|muringis nèng ngarêp lawang|yèn suwung balurut|Ki Kalawirya alatah|Jayèngrêsmi Jèngraga gumujêng wadi|kawangwang marèng titah||
+
+### 64.
+Kidang Wiracapa angling malih|puniku dhi Ragil Kulawirya|trima panrima dununge|apan datan tartamtu|dene gêdhe kalawan cilik|lagi kang manirojar|wawadhaganipun|yèn wus watak pèndhèk tangan|wong acilik dubruwun ngêmis ngêndhih sih|yèn wus sinungan lunga||
+
+### 65.
+Datan wontên trimaning sadêmi|mring kang asung kang akarya pangan|Pangeraning alam kabèh|mung sok olèh aluwung|kang mêkatên sukêring janmi|rucah bangsa ibadah|sanadyan wong agung|karêm mundhut darbèk wadya|saturute priyayi sêring mêndhêti|darbèke pawong rencang||
+
+### 66.
+Wus kabangsa lan jalma kang nisthilp|ywan wong agung olah pèndhèk asta|narik ing ka-apêsane|tan na ngêmbani wahyu|raga mukti ati sor juti|
+
+kang watak sirlinapgang(?)
+
+### 66.
+|puniku tan arus|tinggal jênênging utama|tan tinêmu eman sinêbut priyayi|budine andêdilat||
+
+### 67.
+Kang ngong-tuturkên kula pribadi|datan wajat polèh ring utama|mung-mung rèh rèmèh gêndhingkrèh|batèh nêmpêg gêrèh wruh|têlung glintir dèn-dhèh-dhèh kêni|Ki Wirya saya latah|myarsa banyolipun|asor cucuting adhalang|sarwi angling lo nyanggup Kenthol Nuripin|gawemu milang lawang||
+
+### 68.
+Iya inêndur-undurên thithik|matur kantênane yèn tinimbang|ngling timbang priye bacute|matur kêsupèn wau|sarwi mèsêm ulat nyêlori|samya ginuyu kathah|dènnya ngampêt atur|Kae Kidang Wiracapa|gujêngira sarya ngling angancarani|lênggah marang pandhapa||
+
+### 69.
+Samya kering mudhun saking masjid|mring pandhapa tamu wus mèh prapta|pan sadaya mudhun age|ngancaran kinèn lungguh|sigra wangsul mring (ng)gènnirèki|tata samya alênggah|pêpak sadaya wus|wacinjang pênthèring surya|Kae Kidang Wiracapa ngandika ris|marang Mas Mangunjana||
+
+### 70.
+Pênêde yèn wus ana miranti|eca madhangan sarapan enjang|kang sarwa ngêt anyarane|Mas Mangunjana matur|inggih sampun rimat sasaji|kinèn angêdalêna|Mangunjana gupuh|anuduh wong kasinoman|kang tinuding sigra naosakên aglis|rampadan marang ngarsa||
+
+### 71.
+Tan kalèru pangetangirèki|langkung asri ulame mawarna|samya angêt sadayane|wus mundur kang mangayun|Kae Kidang Wiracapa ngling|suwawi wawantingan|kang liningan gupuh|adan lêkas samya nadhah|datan ewah lir sabên kêmbulanèki|pikantuking panadhah||
+
+### 72.
+Gamêlanira munya ngrarangin|gantya munya ngroras gongan sèwang|salendro lawan peloge|ronggèng Grèpèt lan Mênur|kang (ng)gêndhèngi ladrangan ganti|kang nabuh lêlirihan|kalênyêt anganyut|ing raras padha karasa|karya imbuh kamyatan ingkang abukti|tanak nora kasêlak||
+
+### 73.
+Mangunjana tansah angidêri|anglarihakên warak waragang|mawantu-wantu larihe|tan kêndhat idêripun|Jayèngrêsmi lan Jayèngragi|katri Ki Kulawirya|salang gumun (n)dulu|myat bangsa ing Panaragan|doyan arak larih dèn-padhakkên warih|tan wuru wurukanya||
+
+### 74.
+Wus kinarya lalabing ngabukti|arak api tampo lan waragang|ginênti lawan ulame|gantya wuwusira sru|ana ingkang katlangso angling|dyan Puspagati mojar|kula kamipurun|sumarwo nyuwun aksama|dhumatêng ing Kae Mas Kulawiryèki|
+
+(
+
+### 74.
+m)bok suwawi lariha||
+
+### 75.
+Kewala sapindhah pratondhèng sih|Ki Wuragil anjola sinabda|Jèngraga mèsêm myarsane|Jèngraga agumuyu|winor angling sarwi anjawil|tiwas blai (n)jêng paman|dèn-jak uyup-uyup|sami sasruputan edhang|Ki Wuragil gumuyu gupuh nauri|inggih putu ngong trima||
+
+### 76.
+Pasihane kang dhatêng pun kaki|kula amung tatênèh talangan|nginum mring pun putu dhewe|kang sainum pun putu|kang sainum sumurup mami|duduh kalih inuman|sisan ngriku putu|gêr ginuyu ing akathah|Kae Kidang Wiracapa gumuywa ngling|bisa nanduki basa||
+
+### 77.
+Kang punika nak-mas Jayèngrêsmi|pratingkahe wong kang mêndêm arak|tan ringa suba-sitane|wus nir kawatiripun|manah wantah tan sangga-runggi|kêndêl bae tan mamang|barang kang winuwus|tan ketang thêl tinugêla|tan was-uwas saking wanèh wanuh wani|tyase wong mêndêm wragang||
+
+### 78.
+Ewêd lan anèng êndême dhikir|kaot wong tidha-tidha dhikiran|tulus gèla-gèlo bae|tan tumêkèng (n)dêmipun|kang têkèng (n)dêm êmoh sathithik|kudu akèh kêtha-a|ing pandhikiripun|mêndêm arak (ng)gih kadyèka|tan yun kêdhik kêdah kèh panginumnèki|jatine (n)dêm panikram||Putra kalih myarsa anor-ragi|antara nutug kang samya nadhah|wus samya turuh astane|luwaran sadaya wus|cinarikan ambêngira glis|sinungkên pawong rencang|
+
+-
+
+### 78.
+ngira kabèhipun|wrata warêg malah (m)brêkat|ting kalêncar mulih pondhok nganti gusis|pyayi ye tanpa rowang||
+
+### 80.
+Nulya dhadharan lumadyèng ngarsi|wus samakta andhèr sri sarwa na|sangkêp kang tinakokake|cinarakkên ing tamu|samya ngalap sasênêngnèki|Kè Kidang Wiracapa|alon dènnya muwus|nakmas Dêmang Wirancana|punapi kang kinarsan tanggapanèki|sugatèng tamu mangkya||
+
+### 81.
+Matur putranta pun adhi-adhi|nanggap uju sabên siyangira|dalu nayub prayogine|sarwi nolih amuwus|mring pra ari tanya kang ringgit|sapa kang sira undang|ronggènge kang mungguh|matur Mas Mancanapura|rinta Wirancaka wus utusan wingi|ngundang ronggèng pun Gêndra||
+
+### 82.
+Nèng Kalangbrèt lan utusan malih|ngundang Madu nèng Pulung-lumba|mung ro punika kang sae|dyan Wiryabrata muwus|sarwi mèsêm marang kang rayi|adhi Mancanapura|sun tutur sirèku|pa kira dyan Puspagatya|iya sangu talèdhèke apêrmati|pun Teki wastanira||
+
+### 83.
+Yèn aja-a pun anak Puspagati|kang anggawa yêkti ora kêna|rada katêngên gawene|mara takokna gambuh|Mas Mancanapura nulya ngling|inggih nak Puspagatya|sangu jontrot gupuh|kang liningan gumuyojar|inggih (m)bêkta awon-awon inggih Darmi|Kyaine Wiryabrata||
+
+### 84.
+Kang ngèbêki kula namung ngampil|Kidang Wiracapa nambung sabda|kewala mung padha duwe|pênêd sami thok êmbul|pan gumuyu sadayanèki|ngling malih paran samya|
+
+(
+
+### 84.
+m)bêkta sawung puyuh|upami sami ambêkta|sami ngirapakên lan nènèman mami|ngong dèrèng wruh damêlnya||
+
+### 85.
+Saur-manuk sadayanirèki|inggih sami won-awon binêkta|wawinèh pêndhêt marike|kang kinèn samya gupuh|nuduh rencang pating taruding|tan dangu sami prapta|puyuh lawan sawung|Kè Kidang Wiracapa jar|ngêndi unggyan kalangane kang prayogi|matur Mas Wirancana||
+
+### 86.
+Anjawi nèng tarub ingkang ngarsi|sampeyan pinarak nèng undhakan|sami nuduh pra arine|lah tatanên dèn-gupuh|kalangane glarana lampit|para ri tur sandika|tan dangu wus ramut|Kae Kidang Wiracapa|ngling suwawi anak-kula pra ngabèi|angalih lilinggihan||
+
+### 87.
+Kang liningan sigra mudhun sami|amapan lungguh kêpung kalangan|kang pra ari age-age|anggêlar kalasa lus|palênggahanira (n)Jêng Kyai|anulya lènggar ing (ng)gyan|
+
+-
+
+### 87.
+nira amangayun|Jayèngrêsmi Jayèngraga|Kulawirya sami tan lênggana rèhning|nut kang ngadarbe wisma||
+
+### 88.
+Narah rinèh tan lêngganing kapti|wus samya lênggah papan kalangan|Ke Kidang Wiracapane|alon dènnira muwus|Wirabajra pundhutên aglis|jagowanku si Modang|lan Gêmak di Balud|lan kowe padha amèka|jago gêmak mung dimèn padha ditandhing|nèng kono ing kalangan||
+
+### 89.
+Tur sandika Wirabajra aglis|samya nuduh amêndhêt bombongan|Wirabajra tan asuwe|kang puyuh sawung katur|ngling lah niku sami tinandhing|sapa kang (m)botohana|angadêg ingadu|dyan Wiryabrata turira|rencang-kula piyambak pun Amad Supi|kang pitados anggarap||
+
+### 90.
+Lan pun Alim-drêma kang prayogi|rencangipun dhimas Wijakangka|kalih punika jênggèse|tan wontên liyanipun|namung tiyang kalih puniki|Mat Supi liyan Dêrma|ingkang sampun komuk|anjênggèsi ing kalangan|Kae Kidang Wiracapa gumuywa ngling|ya wus padha nêngaha||
+
+### 91.
+Wong kalih kang liningan mangarsi|anandhing sawung datan kuciwa|prigêl nêkêm pambobote|kinarya nandhing mathuk|liring mathuk datan ngêboti|tan kadhih ing sausap|otot balungipun|myang gring-warase tan inang|pangiringing napas tan iwir mèlèdi|wus anèng têkêmira||
+
+### 92.
+Angling Dêrma lan Ki Amat Supi|panandhingirèng sata satata|mêdharakên pigunane|panglamakira rampung|sinaoskên mring pra priyayi|tan wus sama ababag|rinamèkkên sampun|botoh kakalih turira|kang punika sampun (ng)gèn-kawula nandhing|sawung-dalêm pun Modang||
+
+### 93.
+Lan sawungnya putranta Dyan Bèi|Wiryabrata kang abrit pun Gramang|kang samya dinadosake|Ke Kidang mèsêm muwus|si Lim Dêrma bae (m)botohi|mring jagoku si Modang|ya wus pitayèng sun|nak Dyan Bèi Wiryabrata|kêkêdhikan kewala pangajêngnèki|sapantêsing kasukan||
+
+### 94.
+Dyan Ngabèi aturira inggih|amung gangsal èwu pangajêngnya|ngling kathah têmên niku dèn|umatur adatipun|pan salêksa pangajêngnèki|Dyan Bèi Wijakangka|anambungi wuwus|lah inggih kakang salêksa|inggih adhi salêksa punapa malih|mojar Mas Wirancana||
+
+### 95.
+Inggih kalih-lêksa angladosi|inggih adhi dados kalih-lêksa|gya samya rinayap ngakèh|kang sèwu kalih-ewu|pan sadaya tan ana kari|sami atêtêmpilan|kang satus rongatus|Kae Kidang Wiracapa|gumuywa ngling lah ya satus bae mami|mangsa bodhowèng kathah||
+
+### 96.
+Babotohe abae pribadi|limang èwu kèh pangarêpira|Ki Kulawirya andowèh|ngungun asru umatur|inggih kalih lêksa punapi|nauri kang tinanya|dhi Ragil puniku|inggih kalih lêksa kênthang|lah puniki giyare sadhèrèk ngriki|limrah rêmên totohan||
+
+### 97.
+Matur inggih ta lah kang Ngabèi|kados botoh kakalih punika|tan sêmbada lan wujude|purun toh gangsal èwu|panganggone tan na majaji|mèsêm angling Ki Kidang|pan wus lagèhipun|botohan lumuh totohan|sarya nuduh mring Lim Dêrma lan Mat Supi|lah wus mara kirapna||
+
+### 98.
+Sigra sawung ingabarkên aglis|patang abaran sami tinoya|sawung pinakan karone|kinèndhèrakên sampun|ya kakirap kluruk salisik|gya ingadu antara|wus gulêt cul playu|aloke asumyak-sumyak|samya ajon-ajon bae Modang tuwin|bae mèlu si Gramang||
+
+### 99.
+Samya prêp-pinrêp gantya amilis|Modang Gramang jago lig-uligan|kêtanggor padha bêcike|katotohan yang-uyung|asor unggul amolak-malik|sigra manangkal wadhak|sru pamêrêpipun|mabrêg si Modang (n)jêrbabah|gêr gumuruh surake samya lok mati|cinandhak dinandanan||
+
+### 100.
+Samya binanyu jagonirèki|mung sakêbêsing kopoh kewala|rampung cukupan banyune|beda botoh kur-ukur|yèn ambanyu satimba ênting|tan kadya Alim Dêrma|lan Mad Supi punjul|jajègèsè wong ing kitha|bisa gawe tandhing kang tambuh pinilih|
+
+(
+
+### 100.
+m)bingungkên wong botohan||
+
+### 101.
+Wus tinêngga jagonira sami|gumêtêr wonge tohira|ngêtohake sor unggule|bancang roro têtêlu|ingkang dhompo pating karêkis|sawung wusnya tinênggar|nulya cul ingadu|karone kanggonan polah|Modang Gramang padha pangayêre miwir|garot pêcroh kalihnya||
+
+### 102.
+Pulêt pêluk gulu Modang pipil|Gramang kêna bênggang gya sinangga|mak-bêg kêna pok kupinge|lajêng anjêngat ambruk|sêg gulinting sinurak angrik|alok yèn babar pisan|sèmpal ngalih wangmu|si Gramang sigra cinandhak|dinandanan nulya samyating toyèki|kinirap gêloyoran||
+
+### 103.
+Kang totohan kumruwuk ting tuding|gênti ngênêm molu anyadasa|jênggèse nadhahi bae|jago unggul aunggul|yèn jagone asor dèn-sori|Mad Supi Alim Dêrma|karome kadyèku|angrampêt wong sakalangan|tan nampik toh sami tan nêdya ambalik|tohira tan petungan||
+
+### 104.
+Jayèngrêsmi miwah Jayèngragi|kadya wong nora bisa pinêksa|buntu tan kabuka tyase|myat botoh ngadu sawung|kewala mung ngecani kapti|narah mring kang aomah|tan katarèng sêmu|kang tohan tantang-tinantang|jagonira wus takat ingêdu sami|sampun rêmpu kalihnya||
+
+### 105.
+Datan pati agitik-ginitik|kothal kathèl têlas pêrêpira|mung kari aloke bae|surak asru gumuruh|ting jarêlih wong ngucap sami|mara ta age Modang|elinga gawemu|bangêtana sapisan kas|bae nuli mak cêlulu ambalêjis|loking mungsuh tan beda||
+
+### 106.
+Mara Gramang kurang sathithik|mungsuhmu iku wus arêp minggat|bok sing sru pêrêpmu kuwe|babotohe aibut|dènnya (n)damu sarwi nêtêgi|cawukên bae Modang|mungsuhmu mèh mlayu|Mad Supi ngling bilih Gramang|tanggung têmên samplukên dimène posit|mungsuhmu mèh rêp moda[---]||
+
+### 107.
+Pan wus bucêg jagonira sami|ukur sami gronjal pêrêpira|tan bisa munggah sikile|karone samya (n)jagur|bênthuk cucuk tan ana gitik|ngalêntruk tan (ng)galawat|samya lok pupuk-pur|Mat Supi anyipat tangan|Alim Dêrma korèke binuwang siti|samya jar nora nana||
+
+### 108.
+Sadaya agêgêtun tan sipi|Amad Supi lan Ki Alim Dêrma|samya angundur jagone|Dyan Wiryabrata ngungun|ketang sawungira kaswasih|Kè Kidang Wiracapa|angling sru gumuyu|o bakal nora wêkasan|jago tarung yèn ijèh dèn-bobotohi|Mad Supi Alim Dêrma||
+
+### 109.
+Tan ana kang mênêng salah siji|sabab kapintêran botohira|botohe babotoh jênggès|mundhuk nglêburi sawung|tan ana kalah salah sawiji|botoh padha jênggèsnya|wus komuk pinunjul|mara ta ing kowe padha|atandhinga babusukan bae bêcik|anulya tatandhingan||
+
+### 110.
+Samya tandhing gya ingabèn aglis|sakêmbaran aloke wurahan|ramya kang toh sor unggule|molak-maliking unggul|Alim Dêrma lan Amad Supi|nadhahi toh anyarah|ing sor unggul purun|nanging wong sapakalangan|nora ana praduli nauri siji|tinambuhan ing kathah||
+
+### 111.
+Ana bocah sawiji kumaki|ran si Blungkang andrêgil totohan|ngêncring picis nèng kanthonge|toh asor ngalor ngidul|amrih ora kalah ing dhuwit|singa jago kang mênang|salah siji ngukup|acalak ngabyak totohan|nora kêna wong nantang toh dèn-sauri|kang gêlêm kang tan arsa||
+
+### 112.
+Dudu polahe kang bocah cilik|kumarêcêg aba nora sora|dak-apite dak-apite|lah lima loro unggul|dak têlune si Wiringkuning|asor rong cèt di-patta|ya kapatte unggul|apan sinauran dhawak|kasamuring kathah kang pating jalêrit|tantangan tanpa rungyan||
+
+### 113.
+Jagone Dyan Bèi Wangsapati|si Racun lan jagone Rahadyan|Wijangkangka pan si Sampe|samya ingadu jalu|sabêtane padha patitis|si Sampe kèh polahnya|mrapal bayar mundur|nusup grit gumaywang ngampar|Racun nganyêr marang cucuk ngêlap mipil|bangêt nyundha gitiknya||
+
+### 114.
+Yèn kacandhak si Sampe tan eling|Racun kangèlan pan dinêrêsan|tan kêna tutut suwene|karone wus kèh tatu|suwe-suwe si Sampe nikih|Racun kêna ginampar|bêt matane rênyuh|si Racun lumayu kalah|sru sinurak gumrah lir bêdhah dèsèki|babotohè ambapang||
+
+### 115.
+Sabab jagone krêp asornèki|nora nyana yèn tumuli mênang|gêdhigrahan kèh polahe|suka sakèh kang mèlu|surak banting ikêt angibing|sumbar wênèh angucap|mèh bae abrundhul|kalahe nora dadiyan|lèhku tohan malah bakal tombok jarit|mèh bae mulih wuda||
+
+### 116.
+Dak-pêng têmên nora molak-malik|tomboka bojo kae kapakna|jangji yèn tarung si Sampe|kang balik unggul gêtun|mojar jêbul kalah ngong iki|aku mau geneya|(n)dadak malik unggul|yèn aja-a balik mênang|Radèn Puspagati ngukup angêsoki|bolak-balikanira||
+
+### 117.
+Dèn-bêgajog mring bocah tinagih|pundi bayarane pikawon-(n)dika|wau angêpat limang cèt|Puspagati nêntak sru|hus dhèk kapan tan ngrasa mami|nora pêrduli sira|bocah edan taun|amêksa panggujêgira|nanging kait padha bocah anêksèni|nganggo mêncir wong tuwa||
+
+### 118.
+Ramya padu Radèn Puspagati|bêngak binêngok padu lan bocah|ngudêr nagih pundi Radèn|kawon-dika dhèk wau|pringas-pringis sarwi anangis|bocah kalima tuwa|barêng ngling gumuruh|(ng)gih dèn wau (n)dika ngêpat|kula ninga (n)dika ngêpat lan cah niki|limang cèt (n)dika ngêpat||
+
+### 119.
+Mêksa tan ngaku Dyan Puspagati|gumêdêr padu anèng kalangan|Ke Kidang Wiracapane|ngandika sru gumuyu|iku sapa bocah kang bêngkrik|padu lawan wong tuwa|ana kang umatur|inggih lare pun Balungkang|kang apabên anggujêg pamênangnèki|gangsal cèt dipun êpat||
+
+### 120.
+Dèn Puspagati datan ngakêni|mila gumêdêr dèrèng wêkasan|ngling bênêrana ing akèh|pra ngabèi umatur|lêrêsipun Dèn Puspagati|kang kawon pabênira|mring rare kang mrusul|akanthi saking andiyat|angling malih lah putu toh nèh kalahi|ywa pabèn lawan bocah||
+
+### 121.
+Matur inggih mandhêkêl kang ati|nuli dèn-soki sapuluh uwang|sarwi ngoso pambayare|lah nya wis kiye asu|bocah edan gêlabro nagih|yèn ta nèng Pranaraga|tak-pêrung kupingmu|gêr ginuyu ing akathah|kongsi kamisosolên Dyan Puspagati|Ki Wirya latah-latah||
+
+### 122.
+Mulat Puspagati dènnya bêngkrik|kaduwêlan padu lawan bocah|têmahe kinalahake|Jayèngrêsmi gumuyu|langkung ngungun ewa ing galih|myat tingkahing maksiyat|wirang jroning kalbu|marang Hyang Kang Maha Mulya|datan urup tan arus lir Puspagati|cipta siniksèng donya||
+
+### 123.
+Nora pati nom-tuwaning wanci|wus cirine caraning ngarucah|cacak tuwa kadi rare|repot uripe korup|karêp marang budi sarani|mangkana osiking tyas|sira sru têpakur|tuwakup nalangsanira|kawawang carêmin ing Ki Puspagati|tuladha jalma tidha||
+
+### 124.
+Kae Kidang Wiracapa angling|têndhinga bancang têlung kêmbaran|dimène glis tarung kabèh|binandhung lawan puyuh|têka têlung tulang ya bêcik|mundhak ramyèng kalangan|nutug sukanipun|pundi rêmêne kinarsan|sawung puyuh niki nèh Balut tandhingi|yèn Lamak tandhingira||
+
+### 125.
+Kêkêdhikan kewala tohnèki|kang liningan gêpah tatandhingan|sawung myang tandhing puyuhe|Dyan Wiryabrata mundhut|puyuhira aran si Sawit|matur punika Lamak|kalawan pun Balut|ngling puyuh-kula anyêngka|botên Lamak pan inggih agêng pun Sawit|matur Lamak sangêtnya||
+
+### 126.
+Inggih agêng nanging kaot inggil|anggêr Lamak sangêtnya kewala|dhengah ron gêlas inggile|wus Lamak tandhingipun|lah (ng)gih dawêg kêdhikan sami|sapa nêmpil maring wang|pra ari biyantu|Wirancana sakadangnya|Dyan Bèi Wijangkangka myang Wangsapati|tumut Balut tohira||
+
+### 127.
+Mangunjana Wiryawijayèki|Mangunpura tumut Sawit tohnya|dadya limang lêksa kabèh|miwah papanthanipun|puyuh sawung wus samya tandhing|Ke Kidang Wiracapa|angêculkên puyuh|sigra tarung anèng tulang|rame gulêt si Balut lawan si Sawit|luwês kadya kitiran||
+
+### 128.
+Jajah anunjêl notog si Sawit|Balut mundur malanthong andhèyang|sinaut Balut andhêngklèk|tan pati olèh gulung|yèn ginulungakên nglangkahi|samya bangêt singsêt|cacakotanipun|Balut kinukuhan wangnya|Sawit sinupit kinukuh anèng nginggil|dangu tan wiwal-wiwal||
+
+### 129.
+Tanpa rungyan gumuruh tulyasri|loking janma dangu babandhungan|lok gêmak lan lok jagone|kalah sinurak umyung|kanan kering wus salin tandhing|Sawit Balut sih ramya|sami atulipun|tan ana asor unggulnya|maksih bae-bae tohe kang ngajoni|gênti ngêpat tinantang||
+
+### 130.
+Yata wong (m)barang pangleran prapti|Mangunjana umatur ing raka|yèn wontên wong (m)barang teter|Ke Kidang nambung wuwus|wong pira kang ambarang panglir|matur tiyang sawidak|dados nigangpuluh|lah (ng)gih anak Mangunjana|binacutkên kewala kèn nuli wiwit|kang ujung papanglèran||
+
+### 131.
+Wirancana ngling lah wus dèn-aglis|kêkêndhênga ing nglatar kang jêmbar|Mas Mangunjana nulya ge|nuduh kèn-ngênthêng sampun|pinarantos samêktanèki|nulya kinèn alêkas|kang samya laujung|bêksa penjalin kinênthang|rong gêlanthe tatandhingan loro sisih|asiring wêdhung pêdhang||
+
+### 132.
+Samya ngrênggêp panjalin tinimbis|kiwa kinèdhè panangkisannya|sigra talu gamêlane|kêndhang ro kênong kêmpul|angklung gêntha sampyong gêng alit|anulya wit malandang|kang asiring wêdhung|bêksa ngagar sisiringan|ngèndha-èndha kadi kêndhêla cacawik|maju mundur egêgan||
+
+### 133.
+Lêt sadhêpa wêdhung nèng panjalin|dadya patang wêdhung sakêcangnya|wang-wêng mèh thithik kupinge|kenging landhêping wêdhung|parandene tan mutawatir|nulya gamêlan santak|surake gumuruh|lor kidul agantya-gantya|samya alok ce-ce-bu-ce sadayèki|asiring sasabêtan||
+
+### 134.
+Rikat malumpat kalih (ng)gyanneki|ngetan ngulon liron siringira|sabêt-asabêt arame|tan ngênani ing pupuh|samya katadhahan ing tangkis|kêndhange dhungdhah-dhungdhah|klungcir mong-jur mong-jur|surake asasauran|barung lan suraking wong adu gora-tri|wurahan sumyak-sumyak||
+
+### 135.
+Ingkang kêna kasabêting pêndir|pêcah matane rênyêk irungnya|kadhang kang dawir kupinge|yèn umênang amupuh|sor kacurnan salah sawiji|ingundur sinalinan|rambahe kang maju|tan prabeda lan waunya|tandhingira lor kidul limalas rakit|lamun tan ana curna||
+
+### 136.
+Patang ajon sabêtan tan kêni|nulya gantya sinalinan rambah|dadya limalas rambahe|ana kang kongsi tatu|kang salamêt rambahing panglir|duk enjang praptèng siyang|wus warata kukut|Mas Mangunjana ambayar|ingkang kalih suwang patukoning jampi|kang mênang limang kênthang||
+
+### 137.
+Wus samya mulih barêng pra panglir|kang ngadu-adu jago lan gêmak|kalangkung rame aloke|bandhung-pat sawung puyuh|kalah mênang salin-sumalin|surake kang amênang|gêr-gêran gumuruh|ana jago rèmèh mênang|patohane wus dèn-sadhuwit-satali|arang wani asorra||Kang unggul mlayu kalih anggitik|botohe umbak bapang susumbar|mangsa nangga-a si Gênje|mara baliya munyuk|
+
+(
+
+### 137.
+m)banting ikêt ngibing malêdhing|kang mênang kèh polahnya|ngece-ece cucut|bocah si Balungkang mênang|asor sakcèt pan sadhuwit di sêtali|anjogèd cacêngkrongan||
+
+### 139.
+Moyok ngisin-isin ngiwi-iwi|mring jago kang kalah jêrku apa|jago jaga binasêngèk|ranne bae si Ruyung|jêbul bingung mlayu mak clili|mudani wong totohan|brundhul kalah unggul|baliya Ruyung dak-pindhang|jêr ulatmu padhang jingglang ora isi|mulane tinggal glanggang||
+
+### 140.
+Ambalêjês nglêburakên picis|samya ginuyu rowange mênang|kang kalah sangêt isinne|nêpsu asru amuwus|nake sapa bocah kumaki|samangsa dak-bêntura|malopor polomu|mênang nora tulus mênang|calangkrakan nèng kalangan manas-ati|bocah edan kêparat||
+
+### 141.
+Kang samya kalah mèlu ngaruhi|si Blungkang iku lunga ing kana|aja anèng kalangane|mêngko blai sirèku|dèn-taboki wong akèh sami|hèh taboki sapa-a|wong wus lumrahipun|sanajan (n)dika yèn mênang|(ng)gih makatên brayang ngur kula sathithik|wong padha nèng kalangan||
+
+### 142.
+Nulya ngalih marang kulonèki|cêdhak (ng)gonne Puspagati mojar|bocah sing sok gabru kae|lo sanak sadayèku|ngong tan tohan kalih cah niki|aja sandhing lan ingwang|bilai sirèku|lunga sarwi garundêlan|wong padha nèng kalangan sasênêngnèki|(n)dadak anyingkang-nyingkang||
+
+### 143.
+Gya ngalih (ng)gon lagya mujurnèki|sasuwene nora kalah-kalah|kanthongan kêbak dhuwite|mênang rong reyal langkung|pawitane mung pitung dhuwit|ingandêl totohan|babotoh kumrubut|satantange linadènan|ingkang tarung si Badhut lawan si Gêndir|Gêndir asor kewala||
+
+### 144.
+Tan bisa malês sadangunèki|kongsi têlung banyon gitikannya|si Blungkang toh unggul bae|mitu molu nyapuluh|akèh wani samya ngêsori|si Gêndir dangunira|sor tansah sinambut|botohe kêsêl anyandhak|andadamu lah wis (m)bok malêsa Gêndir|awakmu kongsi lara||
+
+### 145.
+Gya si Gêndir mipil gombèl iring|nangga adu arêp bêt (n)jêrbabah|si Badhut putung gulune|tangi gloyoran mlayu|tinututan pinêrêp aglis|jinujur gigirira|mak-brug sru kumauk|si Badhut kang unggul kalah|jago asor nora kongsi molak-malik|amalês laju mênang||
+
+### 146.
+Kèh polahe si Blungkang amringis|kêna sêbat jago nora pakra|diwalêsa pisan mak-brèl|sarya sok kalahipun|tokoh loro anggabro nagih|
+
+ê
+
+### 146.
+ndi kalahmu Blungkang|ko(k) mau nyapuluh|wong ro anggujêg barêngan|aku suwang iki suwang ta êndi glis|kalahmu rongpuluh wang||
+
+### 147.
+Si Blungkang sru sumaur ambêkis|dhèk napa kula tohan lan (n)dika|wong kèh mojar nutuh kabèh|dhasar bocah kêpaung|mau gabrah saiki mukir|kinalahakên kathah|si Blungkang macucu|asok sarwi parêmbeyan|wong tan tohan andadak dèn-dakwa wani|aja salamêt mana||
+
+### 148.
+Wus dèn-soki nulya kang sayêkti|mênang samya nagih mring si Blungkang|dèn-sokkên têlas picise|apan maksih wong têlu|dèn-sapuluh dèrèng dèn-soki|ginujêg bayarira|tan bisa sumaur|rêmbuge wong sakalangan|ginêbugan bae si Blungkang anangis|dene arsa pinala||
+
+### 149.
+Nuju ana kang wêlas nêbusi|Mas Dêmang Ranubaya ing Ngrawa|kang ngêsoki sakalahe|anyapuluh wong têlu|nêlungpuluh dènnya ngêsori|dadya sangangpuluh wang|dènnya kalah unggul|sawusira binayaran|binêdêran wong akèh Blungkang ingambil|mujang mring Dêmang Prawa||
+
+### 150.
+Wus têngange surya wancinèki|Ke Kidang Wiracapa andika|mundhut saosan dhahare|Mas Mangunjana gupuh|nuduh mring kasinomanèki|tan dangu wus samêkta|tinata nèng ngayun|ngancaran kèndêl sadaya|pra ngabèi samya nadhah nèng pandhapi|tansah midêr larihnya||
+
+### 151.
+Puyuh kang tarung Balut lan Sawit|maksih gulêt tan ana kasoran|toh anggung bae suwene|sadaya eram dulu|ing bobote Balut lan Sawit|barêngane akathah|tandhing roro têlu|Balut Sawit maksih ramya|dènnya tarung dadya lêlawuhing bukti|mulat gêmak tarungan||
+
+### 152.
+Kae Kidang Wiracapa angling|sasambèn nadhah dhi Kulawirya|ing agêsang tartamtune|sesa purwakanipun|lamun pênêt wiwitanèki|rahayu wêkasannya|pênêt kang tinêmu|pramilane wong asalat|kêdah ingati-ati ing dalêm takbir|betul ihkram pan ika||
+
+### 153.
+Pinrih pana cêngênge ing takbir|tibadil mirat munajad ekram|kang parêng mukaranahe|praptèng pandulu luhung|pangikising nugrahèng Widdhi|rahmat tanpa same-ka|makatèn kang uwus|yèn awon wiwitanira|wêkasannya yêkti awon kang pinanggih|sangsara sinikara||
+
+### 154.
+Sabab nimpang saking Dating Widdhi|titah satata lan satokewan|janma kang tan pênêt wite|papa pawingkingipun|apan tikêl sadasa kingkin|kadi ta si Balungkang|bisa anggêgatru|winalês ginabruhing lyan|mênang satus kênthang nuli sinambulih|sangangatus pinêksa||
+
+### 155.
+Wit mula amblilu kaki-kaki|mênang satak tombok awak mujang|lire puniku warnane|karya won purwanipun|kang liningan samya nor-ragi|kadi ta wong totohan|kakandhanganipun|lacut-lacute maksiyat|pangambile melik sarupa lan maling|anjujugil culika||
+
+### 156.
+Barang tinon angêmpakkên silib|wisa-wisaya akal pitênah|tan ngêmpakkên sablakane|tan ana kang kinalbu|pêcat budinya kang utami|tan duwe pangulatan|rahayuning tuwuh|budine mung rong prakara|lamun mênang bungah tuman tohan malih|mung katon nèng kalangan||
+
+### 157.
+Lamun kalah tyase nginggit-inggit|kudu buburu duwèk kang kalah|tan mêndha bobotohane|rinewang colong jupuk|lamun gontor ati amêsthi|cukule tyas culika|cilaka tinêmu|tumungkul kang ingujaran|dadya ondhe-ondhene tyas lir tinangi|antara dangunira||
+
+### 158.
+Aluwaran dènnira abukti|cinarikan sampun sadayanya|sinungkên pawong bature|waradin tan na kantun|gya dhaharan lumadyèng ngarsi|samya cinaran ngalap|kang liningan gupuh|anyamik sasênêngira|sarwi mulat tarunge Balut lan Sawit|kalangkung atulira||
+
+### 159.
+Samya (n)jêtung ngungun pra ngabèi|myat si Balut Sawit tarungira|tan kalah salah sijine|dadya samya angrubung|tinggal jago kang dèn-êtohi|sami ngampir totohan|asor miwah unggul|si Sawit asor apitan|munggah bae unggul pati tibanèki|angêt plikêt sautnya||
+
+### 160.
+Yèn majahan si Sawit dèn-apit|kari dhuwur si Balut andhèyang|malanthong nyètèsi bae|dangu-dangunya tarung|kamlikikên pangrangsangnèki|si Sawit saya sayah|lumayu ambulus|nora tahan pinètèsan|Sawit (n)dhêkêm cucuk tumancêp ing siti|sinupak kalihira||
+
+### 161.
+Gya ingundur si Sawit tumuli|bêthêm abuh sangêt bocokira|kang myat wêlas sadayane|Dyan Wiryabrata gupuh|ambayari pikawonnèki|limang-lêksa sadaya|pan pangajêngipun|kajawi jon-ajonnira|apan kathah kawonne Radèn Ngabèi|miwah kang samya kalah||
+
+### 162.
+Pan dinum katêmpilannèki|Ke Kidang Wiracapa ngandika|puyuhe saking pundi Dèn|kalangkung atulipun|dèn-pilalah (n)dhêkêm (m)bêg pati|nyata gêmak santosa|nora gêlêm mêpluk|Dyan Ngabèi Wiryabrata|matur inggih puyuh (ng)gèn kula mêmêyi|piyambak sing pulutan||
+
+### 163.
+Kang rame ngling pun Balut puniki|waune unthul wus wande gêmak|nanging apênêt tanahe|ayu sarwi pinangguh|cacangkoke puyuh arêgi|kula ngandêl pêthèk-pêthèknya|milane ngong-ingu|mangke kapênêt têmênan|matur dhasaripun pun Balut prayogi|yèn tumrap kula ngrika||
+
+### 164.
+Ajêng ngurupi mèsa kabiri|gangsal rakit rêgi ngênêm reyal|Ke Kidang gumuyu linge|yèn Dèn Bèi rêmên yun|mring pun Balut kula-aturi|mundhut andika bêkta|sasêngkêranipun|kula jumurung sumangga|Dyan Ngabèi andhêku nuwun turnèki|kalangkung sukèng driya||
+
+### 165.
+Ciptanira tan sok-sokan picis|saking dene lêga bungahira|si Balut panaringake|ing wanci wusing bêdhug|Kae Kidang Wiracapèki|ingkang sami sadaya|kasukan anutug|kula so ing palinggihan|saur-manuk sadaya umatur inggih|sumangga ing sakarsa||
+
+### 166.
+Nulya linggar ing langgarirèki|Jayèngrêsmi miwah Jayèngraga|katri Ki Kulawiryane|samya awêktu Luhur|sabakdanya Ki Jayèngragi|ngaturan marang wisma|dening garwanipun|kang mêjên sadina-dina|nora kêna longkang sadina panas-tis|ngising tai mangkêlang||
+
+### 167.
+Yèn kondur sing jawi mring jinêm-rik|Ni Widuri tan kêna bêngganga|athêmêl lir gula lèdèng|tarlèn ingkang kaetung|mung guthule Ki Jayèngragi|Jèngraga kongsi (ng)gêrsah|katêmbèn kinayun|winasèng dyah ing asmara|Jayèngraga tangèh misasèng ngrèh èstri|jêlanah nampik ngêpah||
+
+### 168.
+Datan ana kang nisani kapti|sabên rakêt tyasira gung ewa|nging Widuri nyrutu bae|lir among rare dhawuh|age-age panyandhaknèki|tan wruh rênguning driya|Jèngraga tyasipun|gèsèh lan warastranira|ati kêthul guthul tan kêna kajawil|têngèn tan ngon iriban||
+
+### 169.
+Rinasèng tyas gumuywa ngling kapti|guthul bandhil tan anuting manah|anganggo karêpe dhewe|yèn ati kêndho wêlu|jamak wêlu mèlu lir ati|si kènèk iki nora|sok calak cumungul|andhangah tanpa parentah|ngotot bêrot drêng kumudu dèn turuti|ya mara karêpira||
+
+### 170.
+Nulya samya karon pulang-rêsmi|nging tyasira satêngu tan rêna|mung nuruti guthul bae|rambah-arambah tinut|tan cinatur ingkang sarêsmi|ingkang sami kasukan|ngabên puyuh sawung|lingsir kulon abubaran|samya rèrèh ngaso mring panggenannèki|sayah mêndêm kasukan||
+
+### 171.
+Bakda Asar andhap wancinèki|Mas Dêmang Wirancana alênggah|nèng pandhapa lir sabênne|pra paman ri nèng ngayun|angandika Wirancana ris|lah sira Wirancaka|kongkonanirèku|ngundang ronggèng pa wus têka|matur sampun nèng wismane Nayakênthi|pun Madu lan pun Gêndra||
+
+### 172.
+Dadi têlu ta lèdhèkirèki|matur inggih tiga saking kitha|pun Tèki talèdhèk adèn|duka-dalêm puniku|mangke lamun têmpuking ratri|bandhung lan Madu Gêndra|dèn-adèning gunung|sami gagambèn katrinya|Wirabraja samambung nauri aris|nakmas Mancanapura||
+
+### 173.
+Ragi bêgja jroning karya iki|barang pinilala pan prayoga|satunggil tan duwe kosèk|pênêt sadayanipun|Mancanapura anauri|inggih lêrês sampeyan|dumadak sarwantuk|Mas Wirancana lingira|dhayoh iki sesuk dènnira yun mulih|mulane dèn-samêkta||
+
+### 174.
+Sakèh ladèn aywa nguciwani|kang para ri umatur sandika|kados tan anglingsêmake|angrukti sadaya wus|kono priye Mangunjanèki|sira kang juru mriksa|matur inggih sampun|tan wontên ingkang kuciwa|sadèrènge kinèn wus kula-ruktèni|tan cinatur dangunya||
+
+### 175.
+Bakda Ngisa wayahe kang wêngi|Jayèngraga ngaturan busana|kang samakta prayogine|apan busana luhung|Ni Widuri anglaladèni|anyamping kawung branta|
+
+-
+
+### 175.
+yuda agêng nêngguh|paningsêt cindhe jo bara|corak jlamprang linud ing parada adi|
+
+è
+
+### 175.
+pèk rukmi wiwiran||
+
+### 176.
+Sinungan pèdhi intên mirah brit|kuluk kanigara wawêngkonan|sumping ron pinrada adèn|cundhuk mêntul intên byur|pinalangkan suri rinukmi|kalpika galigèn mas|kalinglingan tajug|gêgombyok dhuwung oncènan|akakacu kumbaya kusta lus abrit|wus dènnira busana||
+
+### 177.
+Ni Widuri tumingaling laki|mandêng tumênggong kamêdhèp têsmak|lir durung tumon sajêge|andulu wong abagus|ingèsêman anubruk wêntis|sarwi nêmbung asmara|sakêdhap tan dangu|mendah saraosing driya|tamban-tamban kewala lir winginèki|kadar pintên sadhela||
+
+### 178.
+Jayèngraga samun rêngunèki|mêngko bae yèn wis saking (n)jaba|sun-tutugi ing karêsmèn|lah wus payo amêtu|ngong-nêmoni dhayoh priyayi|
+
+è
+
+### 178.
+smu rêndhêt ni rara|wus kèring nèng ayun|lunggwèng jrambah ngarsèng tilam|kanan ingkang ibu Nikèn Widaryati|lan ibu maratuwa||
+
+16 ( Tayuban ngundang ronggèng pilihan) Dalunipun tayuban ngundang ronggèng pilihan. Ni Gêndra, Ni Têki lan Ni Madu. Jayèngraga mêdal saking dalêm agêng kairing ronggèng têtiga, panganggenipun sarwi mompyor èdi pèni. Ronggèng anggambyong gêntos- gêntos. Saking mupakatipun para sêpuh lan para tamu Jayèngraga ambukani bêksa, dipun larihi ronggèng têtiga, sinambuting kêplok mawurahan. Jayèngraga angêtog pangibingipun, binarung pangêliking ronggèng. Ronggèng têtiga ugi kêtogan panggambyongipun, wasana têtiga wau tèplêg tumamèng wêntisipun Jayèngraga sigra kinêmulan sondhèr. Kocapa Rara Widuri sumêrap kakungipun ginapyuking waranggana tiga, sanalika duka yayah sinipi, nyangking bata lumêbêt ing pandhapi amukuli waranggana. Gègèr apuyêngan. Para kadang Trênggalèkwulan nyandhak Rara Widuri, gronjalan sarwi nangis. Dêmang Prawirancana sangêt dukanipun. Kulawirya lan Jayèngraga sami ambêbolèhi para waranggana. Sasampunipun kaparingan arta para ronggèng sami mundur. Têtiyang ningali sami bibaran. Kaca 140 – 153 618 Dhandhanggula 179.
+
+### 178.
+Miwah garwane para priyayi|sami kagawokan dènnya mulat|mring Jayèngraga baguse|babag kèh èmpêripun|lan Pangeran ing Pranaragi|kang wus nitèni lawas|pamuluning wangun|kaot ngrangkung Jayèngraga|bagus dhèmês aluwês mêntês-mantêsi|awayang winawangwang||
+
+### 180.
+Wênèh ngucap sènggane wak-mami|yèn duweya bojo kang mangkana|baya sun-simpêni bae|nora wèh mêtu-mêtu|yèn kajambar kèh kang mèliki|nora kêna kumrengkang|tinêmu pèk clêmut|ginawa lumayu lunga|kowang-kowang kelangan bojo jêlanthir|kèh bawane parojar||
+
+### 181.
+Yata wau kang pra tamu prapti|samya busana kêling samoa|pinapatut sasênênge|kinêtog pamèripun|kuluk kanigara mawarni|baludru langking rêta|wilis wungu biru|miwah mathak myang udhêngan|kêling sutra jingga mèpèt pinalipit|asusumping puspita||
+
+### 182.
+Ingkang dhêsthar cêlêpan myang bathik|parang-rusak modang sêmu-kirang|kang sawit udan-ririse|akathah warnanipun|jor-jinoran panganggenèki|samana bèi dêmang|kang samya alungguh|Dyan Ngabèi Wiryabrata|Bratawangsa Wangsapati Wirapati|Dyan Bèi Wijakangka||
+
+### 183.
+Lawan Dyan Bèi Wijayapati|Radèn Angabèi Malangdewa|Dyan Bèi Puspalayane|Dêmang Jayabilaru|myang Mas Dêmang Nandipurèki|Dyan Dêmang Mangunpura|Mangunrana nêngguh|Mas Dêmang Jayasantika|Dêmang Ekalaya Radèn Puspagati|tuwin Dêmang ing Rawa||
+
+### 184.
+Dêmang Ranubaya Ranupati|Dêmang Ranutirta Ranudênta|Dêmang Ranumanggalane|myang Dêmang Ranukèwuh|Dêmang Ekamantri dan malih|Dêmang Ranudikara|wus pêpak nèng ngayun|tan klèru lungguhanira|Kae Kidang Wiracapa lir bupati|nuju dina grêbêgan||
+
+### 185.
+Mas Wirancana sakadangnèki|Mancanapura Singabancana|Sancana Wiryajanane|Mangunjana waruju|samya kampuh sindur papali|Ke Kidang Wiracapa|tan busana mabru|nganggo kur rêsik padinan|apra abdi kang putra Ki Jayèngrêsmi|tan arsa liya wastra||
+
+### 186.
+Namung pra kadangira Ngabèi|Wirancana lawan Wirangkara|miwah Ki Wirabajrane|nganggo sapantêsipun|Ki Wuragil Kulawiryèki|anyamping parang-rusak|lan sadhêstharipun|paningsêt cindhe barendan|agagombyok dhuwung sumping krang mêlathi|borèh kuning barutan||
+
+### 187.
+Lir jajaka birai apêkik|Ki Nuripin tansèng wurinira|lan wong nonton sapraptane|jalu èstri asêlur|wong parapat manca-limèki|myang têbih sami prapta|nonton ing atayub|mring karajan Lêmbuasta|sakalangkung jêjêl supênuh sujanmi|angsukup yêl-uyêlan||
+
+### 188.
+Jayèngraga kang lagya umijil|saking dalêm agêng mring pandhapa|ingiring ronggèng katrine|Gêndra Tèki myang Madu|miwah Bala Wukir tan kèri|binusanan lir putra|karo binabagus|kasêlak katranging pandam|lir jawata widadara widadari|kaendran kawistara||
+
+### 189.
+Cingak sakèhe wong kang niningali|mulat marang Kae Jayèngraga|kang kadya dewa-dharate|mangkana nulya lungguh|nèng keringe Ki Jayèngrêsmi|kang lênggah sadayobah|mitênggêng andulu|marang kabagusanira|Jayèngraga kang ngêpak langêning sigid|tan ana tumandhinga||
+
+### 190.
+Ronggèng si Gêndra lan Madu Tèki|anèng ngarsanira Jayèngraga|asasêlèn busanane|Gêndra asinjang kawung|sari kêmbên gadhung mêlathi|tinêpèn renda jênar|kawêng adu mancung|agêlung malang sinêkar|paningsêtan sutra mandhalagiri brit|kacu kumbaya kusta||
+
+### 191.
+Si Madu sinjang garingsing ringgit|kêmbên jingga-mangsa pinarada|pinatut adu-mancunge|gêlung nêdhêng rinarum|dhêt sutra jo mandhalagiri|Tèki sinjang prangrusak|kêmbên tulakbangun|atatêpèn para rèndan|apamêkak tumpal seta mandhalardi|gêlung sèntêg sinêkar||
+
+### 192.
+Ronggèng katri abusana adi|sami awiwir rukmi tinatrap|tinrètès intên byur bèjèn|kalpika mirah tajug|glung pinlangkan ing suri rukmi|cundhuk-mêntul tamèngan|kalangkung linuhung|tan cara talèdhèk desa|pan cinara dalêman sarimpi adi|sangsaya wimbuh endah||
+
+### 193.
+Mas Ayu Wiryabrata kang wasis|tate maèsi pangantèn kitha|dalêman myang pra putrane|tan liyan mung Mas Ayu|Wiryabrata ingkang maèsi|pilalaning santana|ingkang samya mantu|mangkana wusnya samakta|Kae Kidang Wiracapa ngandika ris|mring ari Wirabajra||
+
+### 194.
+Wong niyaga kiwa têngên sami|konên munggah na munggèng pandhapa|ricik sacukupe bae|ingkang liningan gupuh|Wirabajra Mangunjanèki|tan dangu wus samêkta|gamêlan mangayun|Ki Wuragil Kulawirya|bisik-bisik mring kang putra Jayèngragi|bilah dene aeram||
+
+### 195.
+Apik-apik ronggèng kene iki|beda ing ronggèng kana-kana|ana ayu ayu manèh|ronggèng ing ngêndi iku|Jayèngraga mèsêm nauri|lo paman kakilapan|paran yakti tan wruh|punapa botên pun Gêndra|inggih mranggi sampeyan piyambak nguni|nyarungakên dawala||
+
+### 196.
+De kang kilèn pun Madu kariyin|duk sampeyan manglar nèng karandhan|Ki Kulawirya anjêngèk|gumuywa ngling amuwus|iki dene panglingên mami|bilah dene sayèndah|yune ngundhung-undhung|dhèk biyèn nora kadyèka|kang putra ngling satunggalipun pun Tèki|ronggèng Dalêman kitha||
+
+### 197.
+Ki Wiryo-jar bubur ati-mami|moyang-moyang bilah setan beka|tlèdhèk nyêmpalkên kathèklèk|Jayèngraga gumuyu|myat kang paman wuyung kapati|mangkana Kae Kidang|Wiracapa muwus|sapa kang wiwit janggrunga|Dyan Ngabèi Wirabrata matur aris|prayogi (ng)gih pun Gêndra||
+
+### 198.
+Gya pun Madu anuntên pun Tèki|ngling pênêt lah pan para niyaga|paran gêndhing purwakaning|sandika kang tinuduh|nulya talu Kabor kang gêndhing|adan lêkas Ni Gêndra|anênggak anjanggrung|nutug pangikaling guna|gêndhing niba gya ronggèng mungsêr sisirig|ngalètèr nèng kalangan||
+
+### 199.
+Imbal kêplok badhute nyênggaki|gêndhing laju turun muni Bondhan|Ni Gêndra nuli anggêndhèng|anuntung manis arum|enggar kabèh tyase kang myarsi|obah sapannontonan|samya rêbut aju|Ni Gêndra yèn wus ambondhan|tuwa anom bocah myat guthule tangi|ambadêdêng sadaya||
+
+### 200.
+Panggambyonge lir prênjak tinaji|parêpêtan sisiring klintingan|ambondhan ngêtog solahe|angglintir gagang payung|munyêt pinalangkaning wêntis|anglèyèk dhèyang-dhèyang|mundur muntup-muntup|singa myat winèhan ulat|ting galêmbor gumêrah wong angukuki|ngawêt nêkên guthulnya||
+
+### 201.
+Wus anutug panggambyongirèki|anulya suwuk gêndhinganira|Gêndra wangsul (ng)gyannya linggèh|gantya Madu anjanggrung|gêndhing munya Jungkang angrangin|si Madu ngrimong wastra|nênênggak anjanggrung|masang kêmayan sumbaga|pisalining pandalu gingsiring ati|mring Madu nèng kalangan||
+
+### 202.
+Wusnya mamati niba kang gêndhing|lêkas anggambyong anumpak raras|gya laju Gondrong gêndhinge|antokon Gondrongipun|dyan anggêndhèng ngêlik gumlindhing|plêng binglêng wong kang myarsa|sindhène si Madu|Gondrong niba Lela-lela|nyandhak payung mêgar sinumpah pinêthit|minuwêr ingidêran||
+
+### 203.
+Lir sikatan dinamu akêsit|kêkicatan kesit tan katingal|cat anglela kakèmpole|sampêlah kang andulu|dolongèhe kaduli-duli|si Madu nulya ngikal|manthêng mênthang payung|pinutêr bantêr nèng asta|nurung sindur mêrpêt wèh ulat wong ngaksi|barêng surak kukukan||
+
+### 204.
+Copot ikêt sabuk miwah kêris|tinawakkên mring bok Madu ika|nya kiye Madu nya kiye|tèk-golèk luru-luru|mung wèhana ulat wakmami|batur Dêmang èpoknya|dèn-tawakkên Madu|anutug panggambyongira|ronggèng nêmbah kèsodan wangsul (ng)gènnèki|suwuk gêndhinganira||
+
+### 205.
+Nulya gantya Ni Tèki kang kèri|rawitira gêndhing Taliwangsa|padha krasa panabuhe|angalêp nganyut-anyut|apan lêkas ngayêr si Tèki|ngrimong cindhe jalamprang|anênggak payung yun|amatak sêmbaga gêndam|limuting tyas tinuntun manjinging kingkin|kinon jroning kanêngran||
+
+### 206.
+Hongilahèng nayang ganur lathi|tharinga jarinira pinupa|mêdhar cahya hongilahèng|sakèh ingkang andulu|gêdhe cilik tuwa nom tuwin|lanang wadon tumingal|mring badan sliraku|pan katon asmara-tura|rongèh gorèh têka wêlas têka asih|lulut onèng maring wang||
+
+### 207.
+Pan mangkana kamayanirèki|tar antara Taliwangsa niba|gya Tèki raras sarimpèn|tumpak saliring gambyung|kakêjêr lir branjangan paksi|sasirig anyênyêtan|awasis sauyun|sèdhêt pêthêting tanaga|panibane lajêng ladrang Lara-nangis|Tèki ngangkat ambondhan||
+
+### 208.
+Nulya nyandhak payung Tèki manis|pinanthêng-panthêng bau andhingklang|pinalangkan ginalèntèr|mêmêt madyaning pupu|payungira pineyang-paying|lir paningkising sara|parampinganipun|angêlik sora rum rara|gêtas rênyah mêthit mêrit wuluh rujit|rujat tyase kang myarsa||
+
+### 209.
+Papas rantas rontog rontang-ranting|atining wong angrungu sindhènnya|amlas asih lantikane|cipta mèlu kalayu|jalu èstri abranta kingkin|Tèki mêdhar tanaga|
+
+-
+
+### 209.
+nira dènnya (ng)gambyung|akêsit nindur wèh ulat|mring wong nonton singa kang kinincang alis|samya lok sumyak-sumyak||
+
+### 210.
+Barang kang cinandhak kang cinangking|ting karopyag anggêbugi cagak|sarya sru surak-surake|kadya ngêpung simagung|kang sinênggrang surak gora tri|mangkana antaranya|pambondhanira wus|mêndhak nêmbah wangsul (ng)gyannya|jèjèr wayang nèng ngarsane Jayèngragi|suwuk gamêlanira||
+
+### 211.
+Mas Mangunjana gupuh angrukti|nuduh mring wong kasinomannira|mêdalkên pasugatane|wedang pangananipun|tan dangu wus lumadyèng ngarsi|sarta lariyannira|midêr kang aminum|Kae Kidang Wiracapa|angandika (m)bok bacutan bae bêcik|aja tanggung ing raras||
+
+### 212.
+Lamun nora kongsi maratani|ngantu-antu kang padha ngombe rak|prayoga nuli lêlangèn|Ki Wuragil gumuyu|sarwi nangkut kang ronggèng katri|dèn-eling wong lulumban|anglali nèng banyu|iki anglangi nèng jogan|Jèngraga ngling nora jamak paman iki|mundhak pasangon ulat||
+
+### 213.
+Samya gumujêng suka ing galih|ronggèng Ni Tèki Madu lan Gêndra|kang ngèsêmi mring kalihe|Wiryabrata umatur|mring Ke Kidang Wiracapèki|kasinggihan sabdanya|pênêt nuntênipun|ngling malih sintên kang bêksa|matur prayoginipun kang ngrumiyini|putranta pinangantyan||
+
+### 214.
+Angandika nakmas Jayèngragi|kula-aturi angraras bêksa|kang putra nuwun ature|kewala mangke pungkur|luhung kang putra tamu rumiyin|kang rama mèsêm nabda|ing prayoginipun|nakmas Dêmang Wirancana|(n)dhinginana katêmpuh kang darbe kardi|dadya panuting kathah||
+
+### 215.
+Mas Prawirancana Angabèi|tan lênggana ing karsa nut sabda|Lung-gadhung pamundhutane|para niyaga gupuh|sigra lêkas ngunèkkên gêndhing|ronggèng tri sigra tandhak|barung gêndhèng arum|Mas Dêmang Prawirancana|nulya bêksa pasaja datan (m)bèragi|marasêmu kewala||
+
+### 216.
+Para rencangira angêploki|lan sanjatanira barondongan|antara patang gongane|pangibingira sampun|ronggèng raryan suwuk kang gêndhing|Ke Kidang Wiracapa|alon dènnya muwus|nakmas Radèn Wiryabrata|ingkang dadya wawaton wiwit angibing|nuntên saurutira||
+
+### 217.
+Wiryabrata tan lêngganèng tuding|nulya mundhut gêndhing Onang-onang|ronggèng anggêndhèng katrine|Dyan Wiryabrata gupuh|angadêgi wusnya angibing|pra ri ing (ng)Galèk-wulan|bêksa larihipun|samya lok wong (ng)Galèk-wulan|kêplok atri bêdhil barondongan muni|suka sakèh tumingal||
+
+### 218.
+Wiryabrata dasar wignya ngibing|ababêsus dènnira ambêksa|bêksa kêmbang pangukêle|ronggèng tri parêng nindur|sarêng wiwalira ningkapi|sisirig (ng)gyannya mara|nindur maju mundur|ronggèng tri kangsèn kalangan|wus antara rolas gongan dènnya ngibing|pan wus dènnya ambêksa||
+
+### 219.
+Nulya gantya saurutirèki|Rahadyan Ngabèi Bratawangsa|nulya Dyan Wirapatine|Wijakangka wusipun|Wangsapati gya Jayapati|nuntên Dyan Malangdewa|gya Jayatilaru|nulya Radèn Puspalaya|ganti Sandipura Mangunpura nuli|Mangunrana abêksa||Mas Dêmang Jayasantika tuwin|nulya Radèn Dêmang Ekalaya|gya Radèn Puspagatine|pangibingira baut|tuwa-tuwa maksih (m)bêsusi|dhasare tukang bêksa|asring amumuruk|pra anom-anom ing kutha|kang (ng)guguru marang Radèn Puspagati|mila kèh wignya bêksa||
+
+### 221.
+Radèn Puspagati dènnya ngibing|saplak lan ronggèng pangukêlira|ronggèng ganti panindure|lèngèk linglingan (n)dulu|kadi dara angloloh piyik|pra kadang (ng)Galèk-wulan|kang nglarihi minum|mring bangsa ing Pranaragan|sadangunya ganti-ganti kang pra ari|nglarihi ingkang bêksa||
+
+### 222.
+Wus antara pangonjoting ngibing|nulya raryan wangsul ing (ng)gyannira|pan wus suwuk gamêlane|Ke Kidang ngandika rum|lagya pintên kang samya ngibing|matur Mas Wirancana|ingih kintênipun|sawêg sapalih kang bêksa|sadaya wus bangsa Pranaragan ngibing|kantun pra Dêmang Ngrawa||
+
+### 223.
+Manirarsa nyêlani nêngahi|prayogine bagus pinangantyan|aywa yèn kongsi kalungsèn|pra ngabèi umatur|inggih sakalangkung prayogi|ngandika mring kang putra|Jèngraga umatur|manawi parênging karsa|lamun sampun arinta paman Wuragil|inggih nuntên kawula||
+
+### 224.
+Kang rama mèsêm ngandika aris|lah dhi Ragil kula-turi bêksa|punapi gagêndhingane|matur sumangga kayun|sun-patute inggih dhi Ragil|mojar marang niyaga|nabuh pelogipun|lah unèkna kênong pisan|pathêt barang iya gêndhing Gunungsari|sigra gamêlan munya||
+
+### 225.
+Pelog pelak Gunungsari asri|nulya ronggèng Madu Tèki Gêndra|parêng (ng)gambyong rêng gêndhènge|Ki Kulawirya gupuh|angadêggi kalangan ngibing|surak umung gumêrah|bêdhilan (n)dharudhul|abêksa rangin araras|mênthang asta mathênthêng lir Bima-kunthing|manthuk thêg pacak jangga||
+
+### 226.
+Langkung gulêtira ing pangibing|ronggèng tri parêng panindurira|sarta barang panggêndhènge|aruntut manis arum|lir sundari katiyup ngangin|samya nanêngkah madya|ngugêr nèng pandulu|sakèh suka kang tumingal|Mas Mancanapura tan purun nglarihi|dene bangsa ngulama||
+
+### 227.
+Wus parentah ririh kêploknèki|mring sakèhe wong (ng)Galèk-wulan|myang bêdhil kèh têngarane|kalangkung rêmênipun|wus antara dènnira ngibing|wangsul lênggah (ng)gyannira|gamêlannya suwuk|Jèngraga nuduh mring Laba|myang si Wukir rare ro kinèn angibing|Lompong-kèli gêndhingnya||
+
+### 228.
+Nulya lêkas gêndhing gêndhèng muni|Laba Wukir barêng dènnya bêksa|lir bambang kêmbar bêksane|ronggèng gantya anindur|sami bautira angibing|dhasar rare mêjana|pajarane bagus|karêngga dening busana|wuwuh sigid anjêlanthir Laba Wukir|ngalètèr nèng kalangan||
+
+### 229.
+Langkung suka sakèh kang ningali|pra wadonan kumrêsêg bawanya|dhêmên mring Laba Wukire|rarasan ngaruh-aruh|karo sapa Laba lan Wukir|gaibe bêksanira|karo bagus-bagus|parawan walanjar randha|anggalêgês mangèngès andapès ngisis|cariwis kaèprèsan||
+
+### 230.
+Kang dèn-uprès mung si Laba Wukir|kang malipar mungsêr nèng kalangan|kinatêlon marang ronggèng|kang tumingal kayungyun|mring rare ro si Laba Wukir|wus dènnira antara|tutug dènnya (ng)gambyung|marêk suwuk gamêlannya|Kae Kidang Wiracapa ngandika ris|marang sang Jayèngraga||
+
+### 231.
+Lah suwawi nakmas Jayèngragi|kula turi wiragèng kalangan|punapa gagêndhingane|matur sumanggèng kayun|ngling (ng)gih papantêsing kang gêndhing|Gènjong-goling aniba|ginonjing umangguh|lah mara gè wong niyaga|si Bèr-manis bae sigra kang tinuding|ngunèkkên gêndhingira||
+
+### 232.
+Ronggèngira Madu Gêndra Tèki|samya tandhak cadhang nèng kalangan|Ki Jayèngraga nulya ge|mundhut sondhèr wus sinung|pan jumênêng lêkas amiwir|horêg sapanontonan|samya rêbut aju|ting gadhêgês yêl-uyêlan|datan etang caruk wor jalu lan èstri|rusuh adat wong kathah||
+
+### 233.
+Cêlêr-cinêlêr sakênanèki|kèh kelangan tan ora rinasa|lalu pêrlu pandulune|kang (m)bêsur analusur|susu ingmèk saking ing wuri|myang gagap gêmbokira|sisilak sing pungkur|sakatêke dêg-adêgan|kang ginarap nora èrèp dèn-karêpi|malah ekar sukunya||
+
+### 234.
+Kang tan tau arêp (n)jêlih isin|mupus mênêng prandene sakeca|apan wucapêning akèh|Kidang Wiracapèku|langkung sukanira ing galih|akêplok astanira|dadya sêdayèku|samya akêplok sênggakan|miwah Jayèngrêsmi mèlu angêploki|angrahapi kang rama||
+
+### 235.
+Mas Wirancana sakadangnèki|angêploki sênggak sumyak-sumyak|suka bungah myat mantune|sakèhe pawong batur|samya surak gumuruh atri|bêdhil drèl barongdongan|myang kalataka sru|mawantu-wantu larihnya|mring sakèhe priyayi kang sami linggih|tansah kêplok sênggakan||
+
+### 236.
+Datan ana ingkang mênêng siji|samya kurmat bungah sukèng manah|kang martuwa sakadange|tambuh raosing kalbu|sajêgipun tan kadya mangkin|asuka pari-suka|ngênting kalangên hyun|Jèngraga dènnya angraras|bêksa Panji-anèm Madura rêspati|pacak pasang kusuma||
+
+### 237.
+Pangadêge andoran-tinangi|jaja mungal anjunjung widhangan|kawiwilan darijine|wiwir sondhèr angrajung|angêpipir sondhèr kumitir|mingsêd wêdhi-kèngsêran|jangga nglunging gadhung|jarijwa gêng têkêplêran|mênthang asta andhêngklang gandhewa gadhing|tatanjak kêbo-mênggah||
+
+### 238.
+Ngikal nampir sondhèr anaricik|nyidhang nurung lumarap nêdhikan|anguntap pacak-janggane|pamagêle gol-lambung|alimbangan ula ngêlangi|raras ngundur ramagang|angglong ing dhadhêngkul|tungkak ambengkat tumapak|tanjak pacak jangga pêksi angên napsi|rinambah bêksa kêmbang||
+
+### 239.
+Jayèngraga angêtog angibing|tanpa mèmba langêning kalangan|eram kang tumonton kabèh|kang durung bêksa kantun|cipta ora arêp angibing|puthêr puthês bèragnya|sanadyan kang uwus|tan kaduga ming kalihnya|tanpa wasis bêsuse gusis tan mingis|kapapasing Jèngraga||
+
+### 240.
+Kang jalanthir anganjir pribadi|ngêpak samoaning pra wiraga|Jayèngraga pangibinge|ronggèng tri angarubut|marang Jayèngraga ngunduri|Ni Tèki Madu Gêndra|barung kang gêndhèng wus|kadya suling tinêrusan|cumalinthing cumliring bêning gumrining|lir wuluh apipitan||
+
+### 241.
+Ulon nyamlêng kêplêng tan sarênti|katri lir pèndah êmprit ingundha|kakêjêr kalangan kangsèn|nindur paniyupipun|mencok pinalangkan ing wêntis|anêngkah-nêngkah madya|kanan keringipun|nglinglingan kongah-kangèhan|kadya Juna mangrurumi Rarasati|Srikandhi Drêsanala||
+
+### 242.
+Warga pilut kapaliring ing ngling|ngingling rayung susumping raditya|dadi lara kawulane|yèn tan tinurut ing hyun|kisma rengat tidhêming sasi|bêndara sunlaela|kasuruping dalu|pêtêng apan wus pitaya|pintêr guling gambar anèng kêrtas adi|yèn adoh kapinendra||
+
+### 243.
+Lamun pêdhak amamanas ati|gya ronggèng tri miwal sing palangkan|anglir pêksi madal pange|prêpêt kadi amabur|bêr-ubêran mungsèr sêsirig|ngandhuyuk atikingan|mingsêr mêdhi lungsur|anyambi nyikut wèh ulat|mring wong akèh barêng surak angukuki|ting braok galêmboran||
+
+### 244.
+Bêlah setan kêblak thèthèk pidhir|nora jamak nyoplokake mata|dipandêng mataku molèr|dhuh biyung aku mênthung|anèng lurung bêncèt mlècèti|olèha cowèk gombal|sun-sungkên katêlu|mring si Tèki Madu Gêndra|nora wêdi tombok umur sun-lakoni|mung èsêmana ingwang||
+
+### 245.
+Apa sing ko(k)-jaluk ngong-têkani|tadhahmu pira aku sing nyangga|omahku urupna tikè|kèh swarane aumuk|kang abêksa samya pêrmati|Jayèngraga kawuryan|kabagusanipun|ronggèng tri samya kasmaran|mring Jèngraga dènnya wèh ulat mumurih|supaya dèn-anggeya||
+
+### 246.
+Sakèh wong tumingal jalu èstri|samya karênan panontonira|ronggèng ngêtog panggambyonge|sarêng tèplêg anindur|katri pinalangkan ing wêntis|tan kagol pambêksanya|pacak-jangga manglung|parigêl ukêling asta|ronggèng têlu kinêmulan sondhèrnèki|golang-galing ling lingan||
+
+### 247.
+Ulêt wilêtira angluluti|lumêkêting lathi lir cêcêpan|ngayuh gantyan sing wajane|apanjêran pandulu|ronggèng katri ginanti-ganti|liniling malêngèyan|
+
+è
+
+### 247.
+sême mra-sêmu|kêplok sênggake tan kêndhat|myang têngara bêdhil drèl mawanti-wanti|sarênti ajêdhotan||
+
+### 248.
+Yata kang anèng wisma parèstri|samya suka tumingal Jèngraga|awiraga ngayut ronggèng|sadaya angguguyu|nanging sira Rara Widuri|pan wus sasore mula|atinira (n)jêblug|lir (m)balêdhos iganira|saking katêk ajujul pêgêling galih|rungsang kadya ginangsa||
+
+### 249.
+Anarêthêg gathik wajanèki|mondar-mandir netyanya awangwa|anggaluga ngatirahe|anggigit sadak luput|nguntar-untar panasing ati|tumingal kang pèl-pèlan|lan kang raka dangu|krêp idu tan têkèng lêmah|tibèng sinjang wrata lir sinêmbur abrit|saking sangêt aruntik||
+
+### 250.
+Panglanggare sêdya anêkani|
+
+(
+
+### 250.
+m)bêsot marang panggêdhongan dandan|bêngkung ningsêti kêmbêne|sawusira babêngkung|wangsul ing (ng)gyannira linggih|ningali ring pandhapa|ronggèng sih kinêmul|pangrasane ingarasan|malah-malah kinarsan agênti-gênti|ingaras nèng kalangan||
+
+### 251.
+Tan saranta ngadêg nyat Widuri|sarwi anyangkring bata sarimbag|tan wangwang dening wong akèh|nyampe lantak ingunus|sanjata kang ngampil ing wuri|Widuri gya narajang|ronggèng sru binêntur|mojar pêcah (n)dhasmu pisan|tan andungkap liyan sikute Jèngragi|bata sumyur (ng)galêpang||
+
+### 252.
+Ni Widuri sigra anggitiki|ronggèng kêna tatu gigirira|Jèngraga nampèl lantake|Widuri ngrangsang gupuh|nyandhak gêlung angulêng wani|ronggènge tiba lênggah|kang roro lumayu|gègèr wong sapakalangan|lêng-ulêngan parèstri pating jalêrit|arungan tanpa rungyan||
+
+### 253.
+Para ri ing (ng)Galèk-wulan aglis|nyandhak marang kaponakanira|Widuri ingundurake|gronjalan maksih nêpsu|mosra-masru sarwi anangis|mêngko paman uculna|ngur matiya ingsun|barênga lan si Dilabrag|angarêbut bojo-bojoku pribadi|dipatung ngajak rangkat||
+
+### 254.
+Sinêntak-sêntak mring pamannèki|sira Mas Dêmang Prawirancana|kalangkung sangêt dukane|marang sutanirèku|bocah kapanjingan ing eblis|patènana wa pisan|urip durung tutug|gawe wirang wong atuwa|sun tan-etang anak dadaman sawiji|bêcik angur padhêma||
+
+### 255.
+Ki Kulawirya lan Jayèngragi|anyandhangi ronggèng kang lumajar|si Gêndra Madu Tèkine|Ki Wuragil amuwus|payo marang pondhokan-mami|ywa lungguh nèng pandhapa|anglingsêmi dhapur|nulya linggar sing pandhapa|ronggèng Gêndra Madu Tèki Laba Wukir|Nuripin tan kêna sah||
+
+### 256.
+Praptèng wisma papondhokannèki|Jayèngraga alon angandika|Nuripin turana age|paman Mangunjanèku|Ki Nuripin sigra ngaturi|tan dangu nulya prapta|kang putra lingnya rum|paman andika matura|marang kyai ing dalu kula nèng ngriki|datan mantuk mring wisma||
+
+### 257.
+Mangunjana aturira inggih|Ki Kulawirya anambung sabda|puniki adhi prabote|Ni Tèki Gêndra Madu|suwawi andika widèni|slêpè kalpita sêngkang|lawan cundhuk-mêntul|cundhuk kang sawiji cuplak|pangarake pèlot labêt kênèng gitik|mung rong podhi kang ilang||
+
+### 258.
+Wus tinampan parabot sadyèki|Gêndra Madu Tèki aturira|kula dospundi Kêmase|arta potombok wau|anèng bokor sintên kang ngambil|sakite awak-kula|pinupuh kèh abuh|kawula anuwun priksa|anauri Mangunjana mring ronggèng tri|ya wus aja na susah||
+
+### 259.
+Picis ing bokor wus dèn-rumati|mèntar sing ngarsa marang ngayunan|ngaturkên parabot ronggèng|wus rinukti liripun|Mangunjana ingkang ngrampungi|tan matur marang raka|bicaraning blèdru|tan dangu wangsul praptanya|angling mojar maring ronggèng lah ta iki|picis patombokira||
+
+### 260.
+Lawan sira pinaringan picis|pan nêm reyal ngêrong reyal edhang|sêwêk kang ko(k)anggo kuwe|udhêt tapih kêmbênmu|pinaringkên marang sirèki|ronggèng tri aturira|inggih langkung nuwun|nulya lèngsèr saking ngarsa|Mangunjana andadak dhawuh (n)dandani|pandhapa binrukutan||
+
+### 261.
+Gêdhèg pajang lêlêmpitanèki|jaba jro mah kakobong gêbêran|wus dangu aramut kabèh|nulya kinèn amundhut|pasareyan kasur guguling|pajêgan pinapajang|wus prayoga mungguh|Ki Wuragil Kulawirya|mulating Mas Mangunjana langkung asih|sajroning driyanira||
+
+### 262.
+Bisa ngrêrapu angalap ati|marang mantunira Jayèngraga|mrih tan kalantur rêngune|alon dènnira matur|puniki (ng)gyan kawula ngrukti|nistha dama sasama|sompok sumpêkipun|Ki Kulawirya lingira|inggih sangêt panrimah-kula ingkang sih|tan sagêd mangsulêna||
+
+### 263.
+Jayèngraga angandika aris|langkung anuwun ingkang sih marma|kang paman nuwun ature|lah inggih paman sampun|kula-turi dhatêng mangarsi|amaklumipun paman|kathah damêlipun|Mas Mangunjana mit mèntar|Mas Wirya ngling priye ronggèng têlu iki|mangsa bodhoèng sira||
+
+### 264.
+Matur kanjêngipun wontên ngriki|tiga pisan ngladosi pun paman|manah-kula taksih rongèh|kaetang mingut-mingut|mangsa borong paman pribadi|kawularsa rêrêman|kewala nèng ngriku|ing kampung pandhapa ngarsa|kula mijil nèng pandhapa kampung alit|tinilam pinajang||
+
+### 265.
+Ing pandhapa gêng bubaran sami|nora tutug dènnira kasukan|cuwa kadung dening ronggèng|wong nonton bubar mantuk|ingkang kari anèng pandhapi|[---]|sungkawa angungun|cipta tan bisa widada|palakine sira Ni Rara Widuri|kaewan satingkahnya||
+
+### 266.
+Rètna Widuri lara anangis|rinapu-rapu dening wong kathah|miwah ing sasêntanane|kang ibu êmbahipun|anunutuh amituturi|lupute tingkahira|angladèni kakung|akarya runtiking driya|Ni Widuri tan etang rumangsa sisip|mung brangtanirèng driya||
+
+### 267.
+Kudu-kudu mêtu Ni Widuri|mring (ng)gyaning raka anèng pondhokan|ingampah dening wong akèh|dadya tan kêna surup|kaptinira Rara Widuri|yata Ki Kulawirya|nèng pondhokanipun|ngompot lan ronggèng titiga|ingoncèkan ginarap aganti-ganti|nutug sakarêpira||
+
+### 268.
+Babonangan susu manglus pipi|malu pêncutu cimplungan capang|tênggar tugar têlu talèn|akulin lintu-lintu|lincak gagak anglalantaki|nunumpak tumpak lawak|lèwag-lèwêg ngluwung|katêmbèn tingkah mangkana|anutugi ngêtog rasaning kamuktin|mumpung gampang anumpang||
+
+### 269.
+Jayèngraga agolongan guling|Laba Wukir amêtêki pada|nyêthuti jênthik sukune|sasiki sowang mangku|Jayèngraga gumuyu angling|lah sira Wukir Laba|turonna hya lungguh|kang liningan tan lênggana|samya turon maksih sinambi mêtêki|kang gatêl ginêtêlan||
+
+17 ( Jayèngraga botên wangsul dhatêng dalêm agêng) Jayèngraga botên wangsul dhatêng dalêm agêng, tilêman ing paningrat dipun pêtêki Wukir tuwin Laba, wêkasan nandukakên sanggama sami priya. Ing pondhokan Kulawirya andon asmara kalihan ronggèng têtiga ngantos sami kêrinan. Enjingipun para tamu bidhalan. Kadang kadeyan Trênggalèkwulan nyumbang Jayèngraga mawarni-warni; kuda, pangangge, dhuwung lss. sadaya kalantarakên dhatêng Rara Widuri. Wasana tamu têtiga sami pamit nglajêngakên lampah mantuk dhatêng Wanamarta. Kidang Wiracapa paring piwulang ngèlmu wahyaning wahyu, anuting takdiripun Hyang Widdhi. Sadaya piwulangipun anut mupakating para ngulama saha Dalil Kadis. Kaca 154 – 165 618 Dhandhanggula 270.
+
+### 269.
+Jèngraga ngling dimanjuluk thithik|padha angêkêpa lambung-ingwang|ywa wêdi sun-wênangake|nulya sami manjuluk|ngêkêp lambung Laba lan Wukir|si Wukir tinimpahan|kapêlak-apêluk|kagyat ngunduri wus nyana|yèn warasta Jèngraga mèsêm ngling ririh|sing ko(k) unduri apa||
+
+### 271.
+Matur punika ingkang mêlagir|nulya tangane kinèn nyakêpa|gya grayang mangang cakêpe|apa ta gêdhe iku|matur inggih agêng nglangkungi|rare ro kinèn (ng)grayang|ing kagunganipun|Laba Wukir galêgêsan|angandika apa ta padha kepingin|matur pengin punapa||
+
+### 272.
+Iya kiye yèn arêp ngong-wèhi|matur ah kula botên kaduga|ya gene apa mulane|matur sintên kang purun|kêsangêten anggigilani|kongsi botên cakêpa|pan sakilan langkung|baya modar pandêlikan|ngling ngong tanya padha bêlaka-a yêkti|sapa kang (ng)garap sira||Padha matur anggaligik ririh|inggih asring kula kinedanan|kadya mring èstri wuyunge|para Kemase Lêmbu|myang pra radèn ing (ng)Galèk sami|nuju nêngkung lènggèran|kathah pawèhipun|tansah dadya parêbatan|kula lan pun Laba kang dèn-ungsir-ungsir|manah kongsi anggêrsah||
+
+### 274.
+Angling gêdhe êndi lawan iki|matur o ah mangsa sêmantènna|gêng panjange dede-dede|Jayèngraga gumuyu|sarwi niwêl lambe lan pipi|sarwi narik layangan|
+
+-
+
+### 274.
+nira pinanjuluk|Wukir pinungkur linukar|wastranira warastra trap andungkapi|nyungap pang pangingkêpan||
+
+### 275.
+Sabab nora cukup angêkêpi|pinêksa winawasa rêkasa|makênêng nglut tumanduke|kagyat (ng)gronjal angrajug|mak hêg (n)dêngkèng angolang-aling|pulintiran lir sarpa|katindhihan watu|prêmbeyan ngêsah sêsambat|nuwun sampun kawula datan kuwawi|ingkang antèr kewala||
+
+### 276.
+Jayèngraga kapadhaning kapti|Wukir ngasorkên langêning kênya|dangu rapuhira rapèh|nutug langgêning lulut|pan ginanti Laba lan Wukir|awrataning panangga|lêsah kalihipun|samya kawêdharan rahsa|murwasmara madyaning ratri kongsèngnjing|luwaran mring patirtan||
+
+### 277.
+Laba Wukir lir sawung kajiling|arêrêngkêng tan kongan kêmrèngkang|kalengkangan babokonge|bokong bangkèkanipun|mèyèk-mèyèk lakunirèki|samya mring pawariyan|siram sadaya wus|sawusira papasatan|Jayèngraga myarsa adan Subuh nuli|lumampah marang langgar||
+
+### 278.
+Kulawirya Gêndra Madu Tèki|samya katuron lapaking sayah|wah dhinudhah sasuwene|sami karipanipun|Ki Wuragil Kulawiryèki|katuron maksih numpang|guthul sih silulup|mathingkruk anèng si Gêndra|maksih kêkêt grana tumumpanging pipi|pupu pupul timpahan||
+
+### 279.
+Nora kongsi kêkêmul jajarit|ting galimpo lir bligo blêjêdan|kongsi kêrinan tangine|Tèki tangi alungguh|nulya Madu ngalilir tangi|tumingal kang tumpukan|pan samya gumuyu|samya dandan tatapiyan|gumuywa ngling de anggalès têmên iki|kukuh lir kancing lawang||
+
+### 280.
+Gêndra anglilir gumuyu isin|Kulawirya byar mêlèk wis krinan|dadya pot wêktu Subuhe|sangêt gêtun amuwus|kacanthèla salah sawiji|katanggungan wasisan|tinutukkên sêngkut|unine apalêthêtan|Madu Tèki waspada langkung kêpingen|anjinge tancêpira||
+
+### 281.
+Pating galigik Madu dan Tèki|malah nungkuli amrih pratela|tingkah sakerah-kerahe|antara dangunipun|parêng ngangkatira kang gati|angrajuk kalihira|kêrot gêgêt untu|nyangkêrung agêdêdêran|Madu Tèki ting glêgês angling nudingi|amêrêm karo pisan||
+
+### 282.
+Kongsi dhipêt tan wruh ika-iki|gigire kang lanang ngulêr kilan|kantèk alèpèk bokonge|wus tuntas wijiling puh|gumaledhag gumrèwèl gampil|clèwère duleweran|guthul mungkrêt klumut|Madu Tèki kikidiyan|wus luwaran dènnira apulangrêsmi|sarêng sami agirah||
+
+### 283.
+Sawusira kapat asusuci|Ki Kulawirya nèng salu lênggah|ronggèng tri nèng sor ngarsane|Tèki alon umatur|kula nuwun dalêm lilani|mantuk dhatêng pondhokan|wingi wartosipun|dintên puniku bidhalan|sami kondur dhatêng kitha Pranaragi|sadaya sasarêngan||
+
+### 284.
+Kawula jrih yèn kantun nèng ngriki|wus rinilan sarta sinangonan|ngrong reyal nuwun ature|Tèki lèngsèr sing ngayun|nulya Mangunjana kang prapti|ngling paduka katuran|mring rakanta gupuh|Ki Kulawirya agêpah|kerit maring Mangunjana pratèng ngarsi|lênggah panggènannira||
+
+### 285.
+Kang pra tamu dêmang lan ngabèi|wus samakta dènnira budhalan|samya pamit sadayane|marang kang uwa wau|tuwin mring Mas Wirancanèki|Dyan Bèi Wiryabrata|pitêmbungira rum|kawula anuwun lilah|mantuk rêbat wanci amumpung sih enjing|katan rêkasèng lampah||
+
+### 286.
+Ke Kidang Wiracapa ngling aris|prayogine nakmas Wirabrata|
+
+(
+
+### 286.
+m)bok kantos ing sapêkêne|tanggêl pangrungkêpipun|maksih cuwa raosing galih|Dyan Bèi aturira|inggih rêbat cukup|manawi wontên parentah|mutawatos tilar damêlan nagari|kalamèn èwêd-aya||
+
+### 287.
+Dyan Wirabrata majêng ngabêki|atur salam marang ingkang uwa|tuwin mring Jayèngrêsmine|Jayèngraga gantya wus|salam mring Ki Kulawiryèki|nulya sadayanira|tur bêkti salam wus|rinilan pamitira|gya pra rabi mring pandhapa atur pamit|anêmbah nguswapada||
+
+### 288.
+Inastuti sadaya jalwèstri|budhal lèngsèr saking ngarsanira|kumrubut sarêng wêdale|gamêlan barung umyung|pelog slendro lan carabali|sarunèn cacêngkungan|bêdhil brondongan sru|gar gêr mêbus kalantaka|angurmati budhale para priyayi|kang mulih marang kitha||
+
+### 289.
+Tan cinatur kang samya mit mulih|nuju ing sapêkêning pangantyan|kinandurèn salamête|sasampunira rampung|sadhêkahe anyapasari|Ke Kidang Wiracapa|ingaturan kondur|mring Mas Dêmang Wirancana|lan kang putra Jayèngrêsmi Jayèngragi|miwah Ki Kulawirya||
+
+### 290.
+Samya lênggah sajroning wismèki|Mas Dêmang Wirancana lan garwa|ngrukti badhe gagawane|sarta busana luhung|sapraboting priya sarywadi|raja-kaputrèn miwah|raja-kaputran wus|andhèr tinata jarambah|Kemas Dêmang Wirancana matur aris|mring Kidang Wiracapa||
+
+### 291.
+Ingkang punika warnanirèki|pranata kawula sumapala|sarèhning dama miskine|namung supadosipun|dados pratandhaning pawajib|pangarêping akrama|ing sawontênipun|katura marang putranta|pan rumaos amba tan sagêd nyaputi|marang Ki Jayèngraga||
+
+### 292.
+Ke Kidang Wiracapa ngling aris|mring Jèngrêsmi lah nakmas punika|kang pisungsung pranatane|dhatêng rinta sang bagus|Jayèngraga babêktanèki|sakadar ing panadar|
+
+-
+
+### 292.
+rira bundhêl dhusun|Jayèngrêsmi aturira|inggih sakalangkung dening aprayogi|pamulèning sih-marma||
+
+### 293.
+Sung pawitan rèhipun mong-siwi|mratandhani ing suka pirêna|kusung-kusung katrêsnane|sawiting among sunu|kasinggihan gênging kang sih|kawula sukur ing Hyang|kalangkung jumurung|ngandika mring Jayèngraga|lah ya yèku timbalane (n)Jêng kiyai|gagawaning akrama||
+
+### 294.
+Jayèngraga aturira aris|inggih kalangkung nuwun kawula|kang dhumawah pasihane|marang kawula nuwun|datan sagêd amangsuli|gênging sih parimarma|tanpa samènipun|nanging tyase Jayèngraga|datan gingsir pangêbang-êbang sirèki|pangwèhing maratuwa||
+
+### 295.
+Tur ta akèh pangajinirèki|tinapsira prabot samadaya|pangaji rong-èwu luwèh|ciptaning tyas tan kudu|melik donyabrana di-adi|malih ing aturira|mring Wirancanèku|paparing paduka brana|inggih sakalangkung nuwun wajib-mami|anèng purbaning garwa||
+
+### 296.
+Sung akêna putranta Widuri|ing pamèlik ingkang kuwajiban|tan liya garwa wajibe|nadyan badan sakojur|tiyang jalêr mèliking èstri|Mas Dêmang Wirancana|saha garwanipun|cumêplong lêga tyasira|pisungsunge tinampan panrimanèki|nabda mring putranira||
+
+### 297.
+Lah wus dhenok tampanana iki|kang brana mèliking lakinira|siniungkên sira wajibe|anggêmatèni tuhu|rawatana ingkang nastiti|Widuri sarya waspa|nampani brana gung|tan lêga nampani brana|pawaspane kaetang brangtaning laki|sadalu nora panggya||
+
+### 298.
+Pan wus samya kaduga ing ati|para sêpuh jalwèstri sadaya|miwah kadang sêntanane|wus cipta tan sêmpulur|palakine Rara Widuri|karêngon maring raka|kawistarèng sêmu|bubuka duk paronggèngan|ingkang dadya tyasirèki Jayèngragi|tan dhangan maring garwa||
+
+### 299.
+Wus pêdhot thêl trêsnanirèng rabi|namung ketang papa anèng paran|inganti pitung dinane|lir gya mawaning ngênu|angênani tyasnya mawêrdi|(ng)gagas wèng-wènging lampah|tikêling ngatuduh|duhkita katarèng nala|wingitira sanetya Ki Jayèngragi|sinamun kramèng basa||
+
+### 300.
+Para paman ing Trênggalèk-sasi|Kae Mas Mancanapura uga|anêkakkên pamulene|alon têmbungira rum|mring kang putra Ki Jayèngragi|kula-naosi kuda|lan sakambilipun|lamun karsa atetêgar|tan sumêlang ing lampah sampun akenging|tangkêp matuh sakeca||
+
+### 301.
+Winangsulan panarimaning sih|nulya paman Mas Wirabancana|kawula naosi anggèn|turangga ulês gêmpung|lamun karsa têdhak wanadri|tan susah rinèh tambang|wus uningèng kewuh|manguthik towok wêgigan|lan sanjata Rara Kawudan sarakit|atitih kampuh srêpan||
+
+### 302.
+Anauri panrimanirèki|Mas Wirancana matur ing putra|kawula naosi badhe|turangga ulês giyu|wanci kantun satunggal sisih|sawêg kenging congklangnya|manahipun manggut|samangga dipun-pêthila|
+
+ê
+
+### 302.
+ntragipun saèstu tumuntên kenging|anjujur marêp mara||
+
+### 303.
+Inginggihan gya kang paman malih|Mas Wiryancana atur turangga|ulês prada-papêlême|sukunya pancal panggung|buntut mudal mêdal sênggami|aprayogi kagêma|arosa rahayu|wus anjilma nukmèng kata|saprabotnya lan pistul alit sarakit|miwah waos sanjata||
+
+### 304.
+Gya Mas Mangunjana matur aris|kula inggih anyaosi kuda|ulês pêthak sabuk-tinggèn|sarwa kenging wus matuh|langkung rikat adheyanèki|wêdalan Pacêt wetan|kêtêp patutipun|lan jêragêm blarak-pancal|sawêg mèdêm-mèdêm kenging sapuniki|badhe bakah tangkêbnya||
+
+### 305.
+Lan dhuwung sarasah saput-ranti|dhapur Panji-sêkar ganja sanga|sarungan sêmbur kêndhite|Jèngraga lingira rum|ing sih sangêt panrimah-mami|sihipun paman-paman|mring kawula nuwun|tan sagêd amangsulana|pasihane pun paman dhatêng ing kami|anjorogi barana||
+
+### 306.
+Wus mangkana kang samya nadar-sih|wanci wus siyang surya gumiwang|Ke Kidang Wiracapane|angancarani wêktu|salat marang ing masjid alit|Jèngrêsmi Jayèngraga|Ki Kulawiryèku|myang Nuripin Asradênta|modin marbot samya nut salat tan kari|sawusing bakda salat||
+
+### 307.
+Ke Kidang Wiracapa ngling aris|adhi Ragil mungguh ing agêsang|kalih prakawis geyonge|dhingin geyonganipun|ing kaldunya sandhang lan bukti|tan kêna kukurangan|sarat kamuktyan nung|kadya ulam ing sagara|pan uripe mina saking hèr jaladri|jalma kalawan dunya||
+
+### 308.
+Kadya-a mina kasatan warih|pama janma pan kasatan dunya|bilai dunya repote|tan yogi uripipun|gampil lamun winisayèki|malarat praptèng kerat|purêt kang ginayuh|kaya pan nora purêta|si iwak-loh anjarag pisah lan warih|amilar nora nalar||
+
+### 309.
+Kal nèng dunya kadyèka upami|de geyonganing ahli akerat|singsal saking kal dunyane|tan (m)buru sandhang puluk|tan gêgêtun marang kamuktin|muktining sasandhangan|wus nora kaingus|kadya pêksi anèng wiyat|wus tan kêna cinarup samaning pêksi|juwata muktyèng tawang||
+
+### 310.
+Yèn papeka apa sêbabnèki|yêkti si pêksi nora widada|dadalan dudu tingkahe|mina titahing ranu|pêksi titah ing ngawiyati|singa kang dhèdhèpèya|rusak têmahipun|kêdah anungge ing titah|titah dunya lan titah ahli kerati|tan kêna pepeka-a||
+
+### 311.
+Samya norraga ngawirya katri|myarsa jarre Kidang Wiracapa|wali-wali paprèjènge|sawusira amuwus|bubar mudhun saking ing masjid|Ke Kidang Wiracapa|malbèng dalêm agung|Jayèngraga Kulawirya|mring pondhokanira Ki santri Nuripin|Jèngrêsmi anèng langgar||
+
+### 312.
+Tan cinatur solahirèng ngari|Jayèngraga lan Ki Kulawirya|anèng pondhok anggung gawe|ngompot nèng Gêndra Madu|anutugi karêpirèki|miwah Ki Jayèngraga|kewala kukuwu|nèng pondhoke Kulawirya|tansah among kulina lan Laba wukir|kakantil kakintêlan||
+
+### 313.
+Kae Mas Wirancana Ngabèi|dènnya amangun mangku ing karya|ana ing Lêmbuastane|kongsi ing pitung dalu|pan tan kêndhat kang numbang sami|miwah jagonganira|maksih sabên dalu|myang panguyu-uyunira|ajêngguran pelog slendro angrarangin|kadya lagya wit nabah||
+
+### 314.
+Yata sawusira pitung latri|Ni Rara Widuri dènnya ngarang|branta kingkin ring kakunge|tan nadhah lan tan turu|myang tan kêna dipun-pêraki|mring kula sêntananya|manggung mosra-masru|kalangkung gêng nêpsunira|Ni Widuri anèng dalêm andalêming|lir guywan lan kang raka||
+
+### 315.
+Ibu ramanira aprihatin|myat putranira rara dènnira|ewah tan kaya sabênne|tansah amujung jingkrung|nora kêna pawèstri kèksi|linempar kinèn lunga|dadya tanpa batur|ni lara-lara kasandhang|ibunira lan kang êmbah Widaryati|samya èmêng tyasira||
+
+### 316.
+Matur marang (n)Jêngira Kiyai|bokmas Wirancana sarwi waspa|Ke Kidang Wiracapane|alon dènnira muwus|ya ta lah putuku Widuri|yèn uga kabanjura|larane gung wuyung|lah iya mêngko manawa|têmu lan nakira kaki Jayèngragi|ngong bolèh kang pramana||
+
+### 317.
+Supaya ywa kabanjur tyasnèki|mring putuningsun kawêlasarsa|saking gêng trêsnèng kakunge|kang sami gunêm rêmbug|Bok mas Wirancana jalwèstri|ing siyang tan winarna|wuwusên ing dalu|ing sakbadanira Ngisa|apan samya adadalon anèng masjid|alit palanggarira||
+
+### 318.
+Jayèngrêsmi lawan Jayèngragi|katri Ki Wuragil Kulawirya|Ke Kidang Wiracapane|Jèngrêsmi lon umatur|lamun parêng karsa (n)Jêng Kyai|kawula benjang-enjang|nuwun lilah laju|umantuk mring Wanamarta|yèn dados tyasipun rakanta (n)Jêng Kyai|kalamèn anèng paran||
+
+### 319.
+Ke Kidang Wiracapa ngling aris|inggih anakmas sumanggèng karsa|nanging tyas-manira wode|acipta dèrèng tuwuk|maksih agung mawantu ring sih|yèn parêng malah mandar|kongsiya satèngsu|nèng karajan Lêmbuasta|wontên marême ibunta Widaryati|wiyadi ring andika||
+
+### 320.
+Jayèngrêsmi turira nuwun sih|langkung pamundhi ingkang sih marma|pintên banggènipun têmbe|sagêd wangsul tumundhuk|mring karajan Lêmbuastèki|Ke Kidang Wiracapa|alon dènnya muwus|mring Pangulu Asradênta|lah undangên nyainira Widaryati|sigra Ki Asradênta||
+
+### 321.
+Angaturi Nikèn Widaryati|datan dangu wau praptanira|sarwi ngirit rampatane|wedang pangananipun|sri tinata ana ing ngarsi|ngling yèku sutanira|mêngko bakda Subuh|umangkat mahawèng marga|laju mulih marang ing Wanamartèki|watir lami nèng paran||
+
+### 322.
+Lamun dadya pangarsa-arsèki|kakangira Ki Bayi Panurta|marma nakira pamite|Kèn Widayrati matur|nambung wuwus mring Jayèngrêsmi|dene agêlacutan|ge-age akundur|kalangkung gêlaning driya|dèrèng tuwuk tyas-kula rênaning mèksi|inggih dhatêng andika||
+
+### 323.
+Pênêt rêrêma sing tigang sasi|nutug sarèha nèng Lêmbuasta|kang putra anor ature|inggih kalangkung nuwun|pasihane ibu kapundhi|kang ibu aris nabda|kadospundinipun|rayinta Ki Jayèngraga|mungguh rabinira Ni Rara Widuri|kadospundi ing karsa||
+
+### 324.
+Jayèngrêsmi nolèh mring kang rayi|sarya ngling piye Ki Jayèngraga|mungguh rabinira kuwe|paran karêpirèku|Jayèngraga umatur manis|ing manah tan kabuka|yèn kabêkta mantuk|duka sampeyan ing benjang|lamun wontên karsanipun (n)Jêng Kiyai|yèn sampun kauningan||
+
+### 325.
+Nikèn Widaryati tan kêna ngling|karaos wêlas marang kang wayah|Ni Widuri katuwone|miwah sadayanipun|Kae Kidang Wiracapa ngling|ya pinupus kewala|pan wus bêgjanipun|kayata umur upama|tan kêna pinasthi dawa cêndhaknèki|jodho lawas enggalnya||
+
+### 326.
+Yèn amikir liwat kawlas-asih|lamun pinupus ing pasthinira|ing ganjaran dhewe-dhewe|Widaryati umatur|inggih lêrês dhawuh (n)Jêng Kyai|wus samya lêjaring tyas|pinupusing kalbu|Jayèngrêsmi aturira|kula nuwun wuwulang jatining ngèlmi|wêkasaning kasidan||
+
+### 327.
+Mupung sagêd maksih apapanggih|Ke Kidang Wiracapa ris mojar|mungguh ngèlmu sajatine|datan kenging winuwus|liripun tan kêna ing angling|sabab wus nèng nugraha|tataboning wahyu|kang wahyu wêktuning mangsa|yèn wus mangsa yêkti pêsthining Hyang Widdhi|bisa tanpa karana||
+
+### 328.
+Mangsa takdir tan kêna kinardi|iman tokit lan makripat Islam|puniku pan tuntum dhewe|kuwat santosanipun|dene kuwate kita iki|dede santosa kita|kuwating Hyang Agung|santosanipun Hyang Sukma|kita iki wus kapurba tan duwèni|sirik lamun ngakuwa||
+
+### 329.
+Wujuding ngèlmu puniku muni|jatining muni tan munasika|nênge tan dèn-ucapake|tan anèng warah wuruk|datan ana pituduh wisik|tan anèng pangkongkonan|lan tan anèng guru|tan anèng nala mupakat|wus tan kêna tinakokkên ing sasami|anèng pribadining Hyang||
+
+### 330.
+Lamun maksih arambatan ngèlmi|tuwin mituhu ing wuruk warah|durung tumêkèng jatine|patine ngèlmu suwung|lir sakarat dungkaping pati|makatên malih uga|pan (n)dungkaping ngèlmu|angancik jagad walikan|pan wus coplok singsal saking samèng jalmi|wus nunjêm ing Hyang Sukma||
+
+### 331.
+Puniku anakmas Jayèngrêsmi|wus mupakat gunêming ngulama|mung bisa jêjèrèh bae|tan tumêka ngaluhung|mung rasane mulating Dalil|tan nangsube ing nalar|Dalil kadisipun|nanging ta mangsa luputa|pangikêting nala kang saking kajatin|sidik datan nalimpang||Namung makatên bageyanèki|wus tan bisa akarya nugraha|nênging dalêm sawijine|kawulaning Hyang Agung|kang kinarsan nugrahèng Widdhi|(n)dungkaping auliya|Allah Kang Maha Gung|mangsa bodhoa kang tampa|ing kasidan tampa kang adurung tampi|nugrahanirèng Sukma||
+
+### 333.
+Langkung panganggêpira pribadi|wus tan kenging pinae-pae ka|nungge anèng pribadine|ing kadadyan puniku|ing pamurihira ing budi|dhaupe lawan badan|tan salayèng surup|badan budi sunêmbadan|lawan wahyu punika jatining ngèlmi|pandungkaping kasidan||
+
+### 334.
+Jayèngrêsmi miwah Jayèngragi|anor katêgor raosing driya|amiyarsa sasojare|wus ngumum ing pamuwus|pra ngulama kang para ahli|rimbag tan ana siwah|wahananing tuduh|Ki Wuragil Kulawirya|tan kabuka baliwur tyasira aming|kelingan Madu Gêndra||
+
+### 335.
+Tan cinatur solahirèng latri|wanci bangun wêktuning ijabah|Ke Kidang Wiracapane|ngling mring garwa tinuduh|lah mundhuta saosan bukti|Ni Widaryati sigra|mundur saking ngayun|anuduh pawonganira|tan adangu bubucu rampadan kerit|sinaoskên ing ngarsa||
+
+### 336.
+Ingancaran samya awawanting|pra ngawirya adan lêkas nadhah|kêmbul samya pakantuke|dènnya bukti anutug|aluwaran ambêng cinarik|sinungkên Asradênta|lan Nuripin kêmbul|wus nutug dènnya amangan|miwah mamangsêgan tinuwukan sami|luwaran sadayanya||
+
+### 337.
+Wanci pajar gidib awalnèki|samya mudhun ngambil toya kadas|Nuripin adan Subuhe|wus sunat ngangkat parlu|Jayèngrêsmi kinèn ngimami|surating wus Patekah|Sujud awalipun|adêgira sinujudan|wawacane wusing Patekah kang akhir|surat Al Kasar tuminah||
+
+### 338.
+Ni Nikèn Widaryati makmum wingking|rahab mantêp myarsa pamacanya|wus Kinunutan adêge|praptèng tahyatkiripun|salam bakda laju pupuji|dhikir amaca donga|paragating wêktu|salawat asasalaman|wusnya lajêng wangsul mring (ng)gyannira linggih|Jayèngrêsmi turira||
+
+### 339.
+Lamun parêng ing karsa (n)Jêng Kyai|kawula nuwun amit mahawan|umangkat sanalikane|mupung maksih adalu|ing pangestu-dalêm (n)Jêng Kyai|Ke Kidang Wiracapa|rum wijiling wuwus|lah inggih sumanggèng karsa|anjurungkên pangastutining lumaris|raharjaning alampah||
+
+### 340.
+Lawan namung salam bêkti-mami|mugi ka-atura ing ramanta|Kae Bayi Panurtane|Jèngrêsmi aturipun|atur salam ngaras-padèki|anulya bêkti marang|salam mring kang ibu|sigra majêng gantya-gantya|Jayèngrêsmi Jèngraga Kulawiryèki|ngabêkti sasalaman||
+
+### 341.
+Widaryati tyasnya lir kapatin|langkung cuwa maêma-êmanya|mring kang putra sadayane|langkung gêng trêsnanipun|kadya siwi (ng)gyannya angukir|astuti ngêmu waspa|rêndhêting pamuwus|lah inggih (ng)gèr sakaliyan|kula amung anjurungakên basuki|myang adhi Kulawirya||
+
+### 342.
+Pangabêkti kawula kang mugi|katura ing rama andika|Kae Bayi Panurtane|mugi sagêda têmu|ramandika kalayan rayi|Jèngrêsmi aturira|mugi Hyang Maha Gung|marêngna sagêd papanggya|(n)jêng rama lan paduka Kangjêng Kiyai|margane sih-siniyan||
+
+### 343.
+Sawusira sinabdaning kang sih|wusira linilan pamitira|nulya lèngsèr sing ngarsane|madal pasilanipun|mangkat saking kewala masjid|Ke Kidang Wiracapa|saha garwa mudhun|saking palanggaranira|nguntap lampahing putra kang sêdya mulih|mas tumimbuling toya||
+
+### 619
+## Maskumambang  1.
+
+### 619
+Bakda Subuh maksih rêmêng pajar gidib|sira Kae Kidang|Wiracapa Widaryati|kèndêl lawang paregolan||
+
+### 2.
+Dènnya ngatêr lampahe ngawirya katri|pangulu Sradênta|kinèn anuduh ing margi|kang nguntap kundur ing wisma||
+
+### 3.
+Bangbang wetan ing purwaka pajar sidik|rêpêt saput kisma|mèh raina anêrangi|kênyare Hyang Arunènjang||
+
+### 4.
+Angêrgancang kang ima malang malêngki|lêngkaning palangkan|langkung langêning wiyati|wèh wiyoga kang mahawan||
+
+### 5.
+Jayèngrêsmi Jèngraga Kulawiryèki|Nuripin Sradênta|pacalang panuduh margi|dulur margèng pagalêngan||
+
+### 6.
+Mandhadhar byar pracima ing mamadhangi|lir rarasing wastra|lulungsiran sri sumampir|seta rêta dadu pita||
+
+### 6.
+18 (Ngayati lampah badhe mantuk dhatêng Wanamarta) VI. Jayèngrêsmi, Jayèngraga lan Kulawirya ngayati lampah badhe mantuk dhatêng Wanamarta. Asradênta anêdahakên margi. Ing Lêmbuasta Rara Widuri kalajêng dados lan ewahipun, anjalari èmênging para sêpuh. Rêtna Ginubah dhatêng paring sarana lan usada saengga Rara Widuri waras. Prawirancana sakadang kadeyanipun lajêng sami boyong wangsul dhatêng Trênggalèkwulan. Sabidhalipun Jayèngrêsmi, Jayèngraga tuwin Kulawirya, ing Lêmbuasta Rara Widuri saya angranuhi. Solah tingkahipun botên siwah kalihan tiyang ewah. Para sêpuh sakalangkung prihatos, sarat sarana saking dhukun-dhukun tansah cabar. Dumadakan Rêtna Ginubah dhatêng, lajêng asung sarana lan usada, warni-warni jêjantoning usaha. Rara Widuri katêgakakên ginarujug toya kaping-kaping. Sasampunipun makatên dipun takèni dening Rêtna Ginubah, wangsulanipun Rara Widuri, raosing manah, botên karaos satata palakrama kanthi mirunggan. Raosipun namung kados supêna. Sanalika waras Rara Widuri. Demang Prawirancana saanak semah lan kadang kadeyanipun lajêng sami boyong mantuk dhatêng Trênggalèkwulan. Kaca 166 – 174
+
+### 7.
+Apupulas tuturutan kang makingkin|kaujulaning kang|Hyang Kalandararsa mijil|antara angawistara||
+
+### 8.
+Bang sumunar majênar ngêningkên ratri|ngênani kanangrat|mahyas sing sèsining bumi|citraning patra katrapan||
+
+### 9.
+Rarambatan rumbut rurumput mahèr tis|tilas katêlêsan|liruntuning grana rungih|dyah katrêsan nêng-asmara||
+
+### 10.
+Ngidul wetan lampahe ngawirya katri|gya anjog ing marga|gêng taruntunan desaki|kadhang bulak pasabinan||
+
+### 11.
+Yata ingkang kèri Ni Rara Widuri|mangaranging priya|kamisasat sangêt agring|dadya gring edan kedanan||
+
+### 12.
+Andalêming gumuyu tumulya nangis|kakangmas wawi ta|mêngke ta uculna mami|
+
+ê
+
+### 12.
+ndi lèhku kêlan mangan||
+
+### 13.
+Ladèkêna angur matiya wak-mami|wirang jruk Pacitan|kang dangu sampun glis-aglis|barênga lan si Dilabrak||
+
+### 14.
+Botên sagêd kula pisah sawatawis|pêcah dhasmu pisan|bojo-bojoku pribadi|punika burat lan sêkar||
+
+### 15.
+Manggis duryan (m)bok mangke manggihi tami|(ng)gih ayêm manjangan|gêmanda-rasa kêpruki|wong tri matur ngajak rangkat||
+
+### 16.
+Ni Widuri nyat-nyatan arsa lumaris|yèn ngadêg Ni Rara|angkag-angkug bokongnèki|ginrêdêg parèstri kathah||
+
+### 17.
+Ta hês ta hês kang kêrêp aywa glis mijil|sarêngan kewala|lan kula wêdaling mani|
+
+(
+
+### 17.
+m)bok sing dangu punapa-a||
+
+### 18.
+Dene beda sêngkute kalih dhèk wingi|kalangkung akêlang|guthule kêncêng amêsi|ambakna bandha mamala||
+
+### 19.
+Dhuh dhokole cêlèk gobèr blotong sathim|satutup nêt mangang|rasane andubilahi|yang iyang dene sakeca||
+
+### 20.
+Sarta pakèkèyan Ni Rara Widuri|anglulukar sinjang|kudu wuda nora tapih|rinêjêng sanake kathah||
+
+### 21.
+Pan mangkana dènnya ngame andalêming|wus gumyah ing kathah|ewahe Rara Widuri|rama ibune sungkawa||
+
+### 22.
+Tumingal ing suta Ni Rara Widuri|dhêngglêng mring Jèngraga|wus kaocap sakathahing|wong jalu èstri mangkana||
+
+### 23.
+Ingkang rama Mas Dêmang Wirancanèki|tan bisa umulat|ring suta Rara Widuri|ingkang linglung kalanglangan||
+
+### 24.
+Dhinukunkên ganti-ganti nora mari|sira Kemas Dêmang|Wirancana langkung runtik|nèng pandhapa sakadangnya||
+
+### 25.
+Gangsul sêndhu matur ring paman (n)Jèng Kyai|Kidang Wiracapa|dospundi paman Kiyai|prakawis wayah-andika||
+
+### 26.
+Sakalangkung sangêt kawirangan mami|Kae Jayèngraga|adamêl tiwasing urip|tate lagyannya majana||
+
+### 27.
+Tan katon wong Wirancana katon pitik|wau duk miyarsa|Ke Kidang Wiracapèki|kalangkung pangungunnira||
+
+### 28.
+Lon lingira kula tan sagêd nauri|kewala sumangga|gadarenane pamikir|sabab bêgjane priyangga||
+
+### 29.
+Inggih dipun usadakna ingkang bêcik|rèhning anak-anak|anandhang sakit kadyèki|wong tuwa abudidaya||
+
+### 30.
+Kras umatur yèn makatên Man Ngabèi|lilah jêngandiaka|kula pikire pribadi|sigra mojar mring renira||
+
+### 31.
+Hèh lah sira Mancanapura dèn-aglis|lan Singabancana|Wisancaka Wiryanjani|kalawan Si Mangunjana||
+
+### 32.
+Lah susulên dhadhayoh kang minggat mulih|Jèngrêsmi Jèngraga|kabèh padha konên bali|yèn tan gêlêm uwisana||
+
+### 33.
+Lamun gêlêm iya sun-kon anambani|marang putraningwang|ngong-têmpuhkên mring Jèngragi|amulya datan mulya-a||
+
+### 34.
+Lamun durung mulya tan ngong wèhi mulih|yèn tumêkèng pêjah|Jèngraga ingsun-patèni|kabèh wong samana ika||
+
+### 35.
+Dene lamun murina paman sru runtik|wus manira tekad|paman congkrah lawan mami|kudu dahuru lan sanak||
+
+### 36.
+Kae Kidang Wiracapa tan kêna ngling|sadhakêp kewala|pra kadang ing Galèk-sasi|sigra samya tur sandika||
+
+### 37.
+Sarêng mundur dandan prajurittan sami|matah pawong rencang|kang tate nguwisi kardi|olèh wong anglima endhang||
+
+### 38.
+Wusnya samya dènnira ngrakit prajurit|mara marang ngarsa|anêrang têranging tuding|punapa sampun rampunga||
+
+### 39.
+Timbalanta kinèn nyêgat kang lumaris|kang raka sru mojar|lah iya uwis dèn-aglis|tan dangu imbal-wacana||
+
+### 40.
+Pan kasaru wau ingkang nêdya prapti|Ni Rêtna Ginudah|samakta nitih turanggi|lan srênggalanya wayungyang||
+
+### 41.
+Manggung kuda prapta tritising pandhapi|para paman sigra|Wirabajra nyandhak wajik|Ni Rêtna mudhun sing kuda||
+
+### 42.
+Alon andikanira Rara Rinujit|yèki paran baya|dulune padha aruntik|kang rama aris ngandika||
+
+### 43.
+Ing purwane madya wasananirèki|hèh Wirancana|wontên punapi puniki|dene ta kadawa-dawa||
+
+### 44.
+Kakang Wirancana sira sun-tuturi|ya wêruhanira|Jayèngrêsmi Jayèngragi|katri paman Kulawirya||
+
+### 45.
+Nora kêna ko(k) krokos ambêbayani|dupèh sira rosa|sugih kadang andêl jurit|ko(k) kira tan gandra pira||Nadyan budiya kae wong têlung glintir|iku yêkti datan|kêna sira mêjanani|wong winongwong ing Hyang Sukma||
+
+### 47.
+Lagi jitus bae kinarubut jurit|mangsa kasorana|maksih mênang kang sawiji|tan watak giris ing baya||
+
+### 620
+Girisa 1.
+
+### 620
+Jayèngrêsmi Jayèngraga|katri lawan Kulawirya|kapat lawan santrinira|duk maksih ana ing paran|kawêngèn nginêp ing desa|Têgarèn omah durjana|watara wong karo-bêlah|anukup sêdya miala||
+
+### 2.
+Wong karo-bêlah tan panggah|dèn-ijèn mring Kulawirya|daya yèn karo gêgaman|linawan kalawan tangan|suprandene nora nangga|wong karo-bêlah pan kalah|lumayu asalang-tunjang|siji tan ana anglawan||
+
+### 3.
+Turne padha wong dhug-dhèngan|wudhu jadhug wanèng baya|sakèhing jênggêr durjana|kang dêmang sakadangira|mangsa ta amadhanana|wong dur Têgarèn digdaya|prakosa benggol kabèhnya|prandene mawur sarsaran||
+
+### 4.
+Ingsun pemut marang sira|pituhunên jar-manira|nora wurung pindho papa|wirang wuwuh katiwasan|nuruti budi ruhara|yèn sira nora pitaya|mara coba ayonana|mupung durung lêpas paran||
+
+### 5.
+Maksih nèng wetaning Bendha|têka nora mulih aran|nora wurung sira lola|yèn labuh sira palastra|Kemas Dêmang Wirancana|kalangkung pakèwuhira|asêndhêt dènnira nabda|priye yayi karsanira||
+
+### 6.
+Rèhning ngong wrating susuta|larane ngomyang mangarang|tangane uga rayangan|linglung marang ingkang lanang|manira tan bisa nyawang|Rêtna Ginubah lingira|lah iya wus aja susah|ing larane sutanira||
+
+### 7.
+Ingsun kang angsung usada|mulyane si Widuri ka|aja sira walangdriya|Wirancana saurira|yèn mangkono karêpira|kewala ngong nuting sira|yayi apa sakarsanta|mulyane pulunanira||
+
+### 8.
+Ni Widuri kawlasarsa|Wirancana sakadangnya|wus lêjar tan ana susah|anganta mring Jayèngraga|myang Ke Kidang Wiracapa|lêga tyasira tumingal|marang kang arsa bramantya|ing mangke wus tan dadya tyas||
+
+### 9.
+Pinapas marang Ni Rêtna|Ginubah kang kinajrihan|Ni Rêtna aris ngandika|lah payo kang Wirancana|ngêndi (n)gonne anakira|Ni Widuri ingkang lara|mangarang marang kang lanang|nulya samya malbèng wisma||
+
+### 10.
+Nèng (ng)gonne Ni Widuri ka|anèng pagêdhongan wetan|kinêkêp mring ibunira|jinagan pawong sanaknya|parèstri rubung tan têbah|angadhêp mring kang alara|nulya Ni Rêtna Ginubah|praptèng jroning pagêdhongan||
+
+### 11.
+Ni Widuri ingusadan|marang Ni Rêtna Ginubah|alon dènnira ngandika|lah mêngko (m)bakyu mireya|sigra mire kang liningan|kang (m)bakyu lan ibunira|lukar bênggang pangêkêpnya|sigra Ni Rêtna Ginubah||
+
+### 12.
+Anyandhak marang Ni Rara|ingudhar gêlunganira|Widuri mèsêm saryojar|adhuh kangmas Jayèngraga|yèn mêdal dhatêng ing (n)jaba|ywa dangu-dangu kewala|nuli kundura ring wisma|wêlasana dasihira||
+
+### 13.
+Kawula tan sagêd pisah|inggih kangmas inggih kangmas|kang ibu êmbah duk myarsa|Ni Rara pangomyangira|kang ibu angling karuna|adhuh anggèr sutaningwang|katuwone sira rara|têka mangkono laranta||
+
+### 14.
+Rêtna Ginubah lingira|wus-wus aywa na karuna|ingsun kang angsung usada|sira nudinga kon-ngalap|sêmanggi gunung sayotnya|kara lan kêmbang karandhang|
+
+(
+
+### 14.
+m)bokmas Wirancana sigra|anuding ngambil kang tamba||
+
+### 15.
+Tan adangu nulya prapta|sinungkên pan wus tinampan|Mas Wirancana lingira|ya mangsa bodhowa sira|warase pulunanira|nauri Rara Ginubah|ya wus aja sira susah|ing mulyane sutanira||
+
+### 16.
+Ni Rêtna Ginubah sigra|angambil jantuning tamba|saking gagêlunganira|ingkang sêkar gambir seta|winênyêtan sêkar krandhang|sêmanggi kinên nglawêta|pinuh pan pinêt toyanya|wus winor lan wawênyêtan||
+
+### 17.
+Sêkar krandhang gambir-seta|dèn têngakakên sirahnya|sru pinuntir rambutira|pucuking rambut kinarya|lantaran anuruh pudya|gya binènjèng netranira|tinuruh ing pupuh tamba|saking sapucuking rema||
+
+### 18.
+Ing ngêlèk-lèk netranira|kumêtèp pêdhês rasanya|Ni Rara agêronjalan|ngêrêng-ngêrêng ngêsah-êsah|dangu-dangu gya Ni Rara|Widuri anjrit karuna|sigra Ni Rêtna Ginubah|nuding kinèn mêndhêt toya||
+
+### 19.
+Sak jun kinèn anggrujuga|ingkang tinuduh agêpah|(ng)grujug mukanya Ni Rara|Widuri agulagêpan|sarya sru dènnya karuna|asasambat ibu rama|pêgat-pêgat mêlararsa|mulya nulya linuwaran||
+
+### 20.
+Ni Rara Widuri mulya|sabdaning Rêtna Ginubah|arum wijiling wacana|lah uwus kang Wirancana|nakira pan wus waluya|tan ana labêting lara|ramèbu lêga tyasira|kang putra mulya ngusadan||
+
+### 21.
+Myang Ke Kidang Wiracapa|Widaryati sukèng driya|myat kang wayah wus waluya|tan ana kang dadya manah|Ni Rara malih ngandika|lah ta wis Widuri sira|apapasatana wastra|Widuri matur anêmbah||
+
+### 22.
+Lèngsèr saking ngarsanira|rinangkul mring ibunira|gya kang putra pinasatan|wus angêjum remanira|kang ibu marwatasuta|ketang putranya waluya|wus pinasat ingukêlan|nulya umarêk ing ngarsa||
+
+### 23.
+Ni Rara Ginubah Rêtna|arum wijiling wacana|Widuri ingsun tatanya|priye rasane tyasira|sajroning karya rinêngga|ing satata palakrama|kang putra alon turira|tan wontên raosing driya||
+
+### 24.
+Kados tinangi anendra|dènnira apalakrama|ing solah kadya supêna|wus mangkana aturira|Rêtna Ginubah lingira|lah kakang Prawirancana|ing mangkya wus linampahan|ing mulyaning sutanira||
+
+### 25.
+Ing mêngko priye ta sira|aran wus lêbaring karya|Kae Mas Prawirancana|wacana mring arinira|Ni Rara Rêtna Ginubah|yèn parêng ramanta paman|manira yun-kalènggaran|mêmocung mring Galèkwulan||
+
+### 621
+## Pocung  1.
+
+### 621
+Lingira rum|Ni Rara Rêtna rinêmpu|lah ya sokur kakang|tan ana kang dadi pikir|pira bara ana sêmbulihe benjang||
+
+### 2.
+Duwe mantu|kang bagus priyayi lugu|kang prawirèng praja|manira numbang titilik|aywa susah sun-rewang-rewangi sira||
+
+### 3.
+Alon muwus|Mas Dêmang Wirancanèku|ya yayi Mas Rara|abangêt tarima-mami|sapa kang sun-arsa-arsa lyaning sira||
+
+### 4.
+Sadaya wus|kalangkung ing sukanipun|tan ana woding tyas|Ke Kidang Wiracapèki|lon ling marang kang putra Mas Wirancana||
+
+### 5.
+Lamun munggguh|ing karsa prayoginipun|luwaring sungkawa|karya sasabing akingkin|ing sadalu mangke pênêde kasukan||
+
+### 6.
+Ana nayub|lan sanak-sanak saumbul|kang trêsna tumêka|madhayoh sajroning kardi|dèrèng kongsi tinayubakên kasukan||
+
+### 7.
+Lawan sampun|katingal ewahing wuyung|cipta kawistara|kucêma wangun priyayi|pênêd kang suka-suka namur sungkawa||
+
+### 8.
+Alon matur|Mas Dêmang Wirancanèku|pan inggih sumangga|tar lênggana ing satuding|yèn makatên luhung lajênga kewala||
+
+### 9.
+Sami nayub|sadintên lawan sadalu|kang paman ris nabda|inggih kalangkung prayogi|nambung wuwus Ni Rara Rêtna Ginubah||
+
+### 10.
+Lah ya sokur|kakang kasukana nutug|lan sanak pra mitra|prapat bubundhêl desèki|lah wus kakang yèn padha raharjèng nala||
+
+### 11.
+Manira yun|mulih mring asramaningsun|Wirancana miwah|ramèbu samya (n)jurungi|Wirabajra gupuh naoskên turangga||
+
+### 12.
+Sang Rêtna yu|anitih turangganipun|sigra lumaksana|srênggala ngijig nèng ngarsi|pan ingênêr ing wana kayanganira||
+
+### 13.
+Ingkang kantun|sami pagunêman rêmbug|sira Kae Kidang|Wiracapa Widaryati|Wirancana sagarwa sakadangira||
+
+### 14.
+Kang samya yun|mangun kasukan anayub|bokmas Wirancana|mring kang raka matur ririh|lamun parêng (ng)gonnira karsa kasukan||
+
+### 15.
+Luhung dipun|wandèkakên marmanipun|manawi putranta|nênggih Ni Rara Widuri|
+
+(
+
+### 15.
+m)bokmanawi angot kèngêtan kang lanang||
+
+### 16.
+Lagya tungtum|manahnya sênggang mong wuyung|uga kalakona|sakit malih andalêming|datan wande dados wode tyas-kawula||
+
+### 17.
+Lingira rum|Ke Kidang Wiracapèku|gajêg bênêr sira|rêmbug manawa manawi|rèhne mutawatir pangêmonging putra||
+
+### 18.
+Ambiyantu|Nikèn Widaryati muwus|bênêr rêmbugira|yèn putuku Ni Widuri|myat wong nayub babêksan agêgambyongan||
+
+### 19.
+Abot wuyung|pindho papa têmahipun|angur winurungna|pirabara ari malih|yèn wus rapih pisan tan ana labêtnya||
+
+### 20.
+Datan ewuh|karya sukèng anak putu|Dêmang Wirancana|ngalulun kewala ngèli|ing rêmbuge rabinira kang mangkana||
+
+### 21.
+Alon matur|mring Kidang Wiracapèku|kawula punika|sumanggêng karsa sarèhning|tan lênggana darmi kumambang kewala||
+
+### 22.
+Rêmbagipun|putranta wande anayub|lamun parêng paman|kawula dalêm-lilani|sapunika mantuk maring Galèk wulan||
+
+### 23.
+Mapan sampun|tan ana ingkang kinalbu|ngaringakên karya|manawi benjing (m)bèn malih|angandika Kae Kidang Wiracapa||
+
+### 24.
+Sumanggèng yun|yèn karsa budhalan kundur|Kemas Wirancana|anuduh kang para ari|hèh Mancanapura padha parentaha||
+
+### 25.
+Mring wong batur|kabèh konên usung-usung|payo abubaran|mulih marang Galèk-sasi|budhalêna kabèh pawong baturira||
+
+### 26.
+Pra ri gupuh|sandika samêktèng tuduh|lèngsèr saking ngarsa|angrukti barang pakarti|kathah angsale dènnya anambut karya||
+
+### 27.
+Yata wau Mas Dêmang Wirancanèku|pamit mring kang paman|myang kang ibu Widaryati|nuwun madal ing pasilan sanalika||
+
+### 28.
+Linilan wus nêmbah lèngsèr saking ngayun|sagarwa saputra|kang karsa kundur rumiyin|gumarudug jalwèstri ngiring bidhalan||
+
+### 29.
+Ingkang kantun|pra ari sadayanipun|angirit gotongan|bubuhan lir prapta nguni|tan cinatur kang samya labêt kasmaran||
+
+### 622
+## Asmaradana  1.
+
+### 622
+Yata kang mahawèng margi|Jayèngrêsmi Jayèngraga|katri Ki Kulawiryane|Ki Nuripin Asradênta|ing wanci wisan-karya|rararyan sandhap asêm agung|palegungan pinggir desa||
+
+### 2.
+Dhusun ing Karang-kêlampis|Ki Kulawirya ris mojar|Nuripin ngupaya-a we|dawêgan saking sajuga|sigra Ki Asradênta|muwus mangke ngong lumaku|kang dhawuh wong ing padesan||
+
+### 3.
+Nulya lumampah tumuli|tan adangu nulya prapta|Asradênta ing ngarsane|ing ngawirya aturira|naoskên we dawêgan|ngawirya katri anginum|dawêgan sawiji sèwang||
+
+### 4.
+Asradênta lan Nuripin|wus samya ngombe dawêgan|pinalathokan dêgane|winawar samya pinangan|Jayènmgrêsmi ngandika|man Asradênta Pangulu|nulaka ngriki kewala||
+
+### 5.
+Sêdhêng doh untaping margi|lan malih manira tanya|gunung ingkang katon kuwe|bêcik patute inèksan|Asradênta turira|alit sangêt angkêripun|tan wontên janma kang ngucak||
+
+### 6.
+Wasta ardi Rajêgwêsi|rumpil (n)dêdêr dêging ngarsa|lan ana lungur kang rèpèh|sêtun yèn janma tirakat|praptèng kêndhit kewala|tan dumugi puncakipun|langkung nênggèking pancadan||
+
+19 ( Dumugi ing margi tumuju Kalangbrèt) Kocap lampahipun para andon lêlana têtiga kadhèrèkakên santri Nuripin lan Asradênta. Dumugi ing margi tumuju Kalangbrèt, Asradênta pamit wangsul kanthi sêsalaman ndhèrèkakên basukining lampah. Lampahipun para andon lêlana tumuju dhatêng rêdi Rajêgwêsi ingkang inggil andêdêr. Ingkang sagêd minggah dumugi puncak namung Jayèngrêsmi lan Jayèngraga. Enjingipun sami mandhap kapanggih Kulawirya lan Nuripin sêsarêngan nglajêngakên lampahipun. 622 Asmaradana 7.
+
+### 6.
+Lamun kinêncêng sing ngriki|dede margine kang padha|kajawi saking Kalangbrèt|margi gêng kèh trusanira|wong grami myang pêwanan|Jayèngrêsmi lingira rum|
+
+ê
+
+### 6.
+nggèh ngong tanya kewala||
+
+### 8.
+Lah uwus andum basuki|namung salam bêktiningwang|kalawan malih bêktine|ri kaaturêna marang|Ke Kidang Wiracapa|[---]|nulya samya sasalaman||Miwah marang Jayèngragi|Kulawirya sinalaman|pan wus linilan pamite|Asradênta lèngsèr sigra|mulih mring Lêmbuasta|pra ngawirya katri laju|mring Kalangbrèt kang sinêdya||
+
+### 10.
+Lêpas lampahirêng margi|ngambah wana tarataban|alèrèn pinggiring lèpèn|katoran sami asiram|ing wanci lingsir surya|samya salat wêktu Luhur|nèng têpi lambaran sela||
+
+### 11.
+Wus bakda dènnira mupit|Jayèngrêsmi lon ngandika|lamun kaparêng ing mangke|suwawi amurang marga|mring mara kang kaèksan|kawula ragi kayungyun|kêdah andhatêngi lampah||
+
+### 12.
+Marang arga Rajêgwêsi|dadosa misiling lampah|ing tirakat kangelane|inggih paman mrih supaya|panggirahing kirapat|ngrusuki maksiyatipun|bidêngah ngêndhih ngibadah||
+
+### 13.
+Winasuh kalawan budi|pinèpètkên ring apapa|walêsira sakamuktèn|dadya panaure suka|sukêre sumuruda|pami bêndho wêdhung kêthul|yèn sagêd lirip ing lampah||
+
+### 14.
+Tumungkul Ki Jayèngragi|karangsèng tyas kaluputan|wong tingkah wèngwèng balèndhèng|laminya lana (n)don paran|akêlming ingkang raka|nuding budi arubiru|anggung kabèdhunging bedhang||
+
+### 15.
+Ing mangkya ciptaning kapti|dènnya sring nalar (m)balasar|wus kinikis tanpa gawe|pan sumêdya minarènan|solah kang wus kalakyan|badhe nut raka salir hyun|nasoka sajroning nala||
+
+### 16.
+Ki Kulawirya ngling aris|mungguh binobot binabag|iya ing lêlakon kiye|agèsèh lamun rinasa|tan sêmbada ing lampah|lagi cilakaning laku|tirakat ati rakotan||
+
+### 17.
+Ambênêr karêpirèki|bêcik sinêmbulih lara|pinarakakên pakewoh|pinasah lawan kangèlan|pirabara yèn kaya|Jaka-slèwah critanipun|amoyang mêmati-raga||
+
+### 18.
+Nanging Kulawirya nênggih|amung bayari wacana|batinne wêgah tan sagoh|pan maksih karasa lara|guthule andrêwawas|sruwal ngêmbêr denning ilu|akêkat kadi wawulang||
+
+### 19.
+Ki Wirya ngling mring Nuripin|lah kapriye kono sira|rêmbug-rêmbuge wong akèh|Nuripin sêgu turira|e kajawi ta amba|dhatêng pundi purugipun|dhatênga ing awang-awang||
+
+### 20.
+Malah sampun mampar-mampir|mêdala ngarsa kewala|kalangkung rêmit rumpile|puniku yèn atur-kula|dhangan dhèngèn kewala|datan wontên ribêdipun|yèn ta sampuna kapalang||
+
+### 21.
+Dene sakit-kula kuping|tan kenging damêl lumampah|sawêg kopokên (n)dalèwèr|blêbêgên myarsa gêndhèngan|bêng-bêng sakit talingan|yèn kenging kêdah midhukun|sabên dhusun linèrènan||
+
+### 22.
+Ki Kulawirya ambêkis|wong edan cangkême ngomyang|yèn lêkas muwus Di-lèngèng|kêmêndara-kêmêndara|marang sêmu sasmita|(ng)gutuk êlor kêna kidul|(ng)gutuk watu lèh (n)dhasira||
+
+### 23.
+Binalang watu Nuripin|mak sruwêng Nuripin endha|ngling i i biyang mèh bae|liyana (n)dhas priye mana|tan nganggo kira-kira|yèn aja-a èndha buncur|binalang watu samaja||
+
+### 24.
+Jèngrêsmi mèsêm ningali|Jèngraga gumuyu nabda|saiki Nuripin kiye|atandho sugih paitan|wêwadi kang winada|nora kêna ngêntut sêru|mangsa wurunga ginarap||
+
+### 25.
+Nuripin ing dina iki|budine ambêg wibawa|bobote sugih kamuktèn|duwe pangamêng-amêngan|Ki Kulawirya nabda|mulane sun-kudu mênthung|mring ngong sok kêmèwat-kèwat||
+
+### 26.
+Anggêgarap nyênyêmoni|ulate kêmêpak-kêpak|lir wong prênjana wuwuse|awignya mamangun wanda|wong dhapure lir kura|suprandene kumalungkung|si Di-pênthung alu lima||
+
+### 27.
+Samya agumujêng myarsi|marang kang samya paguywan|Jèngrêsmi ngandika alon|sumangga paman lumampah|alon-lonan kewala|gliyak sapikantukipun|nauri ya payo uga||
+
+### 28.
+Gya mangkat Ngawirya katri|marang Rajêgwêsi ngarga|nusup angayam-alase|praptèng sukuning ancala|nèng sêndhang salat Ngasar|bakdane salat gya laju|sumêngkèng ngarga gambuhan||
+
+### 623
+## Gambuh    1.
+
+### 623
+Kêlangkung writing gunung|saking panjadan (m)balêgêr watu|caruk curi paparang parung arumpil|watu kumalasa lunyu|lumut lamêdan anglèmot||
+
+### 2.
+Nênggêl sasêngkanipun|praptèng pênggik têngahaning gunung|anèng watu damar samya ngaring-aring|watu damar patutipun|lir êndhog satugêl mongol||
+
+### 3.
+Gênge patang pêrangkul|sakêmbaran sami alusipun|kadya wêsi waja sinangup sinangling|kasoroting surya gêmpung|mêlêng-mêlêng amêncorong||
+
+### 4.
+Gumilat kadya murub|kaujwalan nadyan siyang dalu|tiningalan kilêng-kilêng lir madhangi|minangka sakèthèngipun|pangandhêg wong sêdya layon||
+
+### 5.
+Ngawirya katrinipun|kandhêg nèng watu damar ing ngriku|datan bisa amucak bunciting wukir|pênggiking arga anggulu|tumiyung mayungnya godhong||
+
+### 6.
+Jayèngraga angungun|ngupaya marga kang mring mêndhuwur|ingulatan kanan kering lambung wukir|wontên sakêdhik dinulu|marga kêlangkung pakewoh||
+
+### 7.
+Angracak krikil watu|agêng alit alur ting pêndhukul|nulya Jayèngrêsmi lawan Jayèngragi|Nuripin Kulawiryèku|kang samya arsa angonjot||
+
+### 8.
+Anêngka inggahipun|mangkat gocèkan watu mêndhukul|Jayèngrêsmi lan kang rayi wus lastari|dilalah bisa anuntung|anganjat marga pakewoh||
+
+### 9.
+Ki Kulawirya wau|lan Nuripin tan bisa tut-pungkur|dènnya munggah anggriguh manah kuwatir|gujêngan watu mandhukul|marucut ambyuk malorot||Nuripin mèlu katut|katundhung arêp tiba kaglundhung|pan wus têlung landheyan inggilirèki|krakal watu mèlu luntur|rêgudug lorot mangisor||
+
+### 11.
+Samya andhèprok timpuh|wong ro kang kalorot ting karênguk|Kulawirya ngungun angling mring Nuripin|priye iki raganingsun|rada kawaon kabêndon||
+
+### 12.
+Majade rêmak rêmpu|wong kaplorot katanggor ing watu|kalunturan ing lungka wêdhi karikil|nora nyana nêmu wutuh|
+
+ê
+
+### 12.
+ndhasmu nora mêlopor||
+
+### 13.
+Nuripin angêcêmut|berkatipun mantuning pangulu|donganipun Ki Asradênta kang mawi|Ki Kulawirya asêndhu|edan kobêre mêmoyok||
+
+### 14.
+Priye kiye karêpmu|apa munggah manèh mèlu nusul|apa uwis nèng kene bae Nuripin|kang liningan aturipun|bok sampun ngriki kemawon||
+
+### 15.
+Mangsi sagêda nuntung|maring pucak punika mèh surup|candhikala dhasar margine arumpil|tan wande mangke kaglundhung|mindhak repot têmah poso||
+
+### 16.
+Yèn kula sampun mopo|kirang priksa yèn sampeyan ayun|Ki Wirya ngling nusula dhewe sirèki|yèn wus munggah rada dhuwur|sun-bandhêmi teka ngisor||
+
+### 17.
+Ki Nuripin malêruk|o ah dede pabênan puniku|yata wau Jayèngrêsmi Jayèngragi|kang nuntung puncaking gunung|ing wêktu sêmada rikoh||
+
+### 18.
+Apan tan ana ranu|dadya kewala amèt tayamum|lêbu sawusnya ngangkat salat Mahêrib|nèng sela kumalasa lus|kayoman ing kayu winong||Gêng-agêng kayonipun|kusambi trênggulun walikukun|baga bibis têkik kroya jaha jati|jêmpina lan sana sênu|pêtêng ayom arongrongkop||
+
+### 20.
+Ingkang samya awêktu|praptèng bakda Ngisa Witiripun|langkung dènnya angrahabi puji dhikir|paragat pamupitipun|luwar dènnya tata lunggoh||
+
+### 21.
+Anèng soring trênggulun|lambar sela kumalasa alus|Jayèngrêsmi angandika mring kang rayi|de paman Kulawiryèku|Nuripin tan ana katon||
+
+### 22.
+Paran tan mèlu nuntung|Jayèngraga alon dènnya matur|dugi-kula apan tan sagêd tutwuri|karantên pan marginipun|kalangkung nênggêl pakewoh||
+
+### 23.
+Rumpil karakal watu|kawula tan nyana sagêd nuntung|ingkang raka mèsêm angandika aris|layak iya yèn kadyèku|sru sokur-sun mring Hyang Manon||
+
+### 24.
+Rumangsa-a sirèku|kinacèk pangrêksanira Hyang Agung|pira-pira ginampangakên arumpil|kudu anyêntor têpakur|marang ing Hyang Maha Manon||
+
+### 25.
+Mungguh ngaurip iku|tinitah ing dalêm dènnya nêngguh|upamane lir kitri tinandur pinrèh|wohe kêna-a ingundhuh|marang kang nandur mrih tuwoh||
+
+### 26.
+Ana pamalêsipun|si kitri mau marang kang nandur|nora ngilangkên baune ki tani|aja kaya kayu sêrut|tinandur tan bisa awoh||
+
+### 27.
+Ki tani tunanipun|kang tinandur tan kolur wohipun|ya wong nora bisa anêmbah ing Widdhi|pinamakkên kayu sêrut|sêtun gawene tinêgor||Tiwas têmên tinuwuh|nora wêruh marang kang anuwuh|sira iku wus sêdhênge mêmarèni|ing galat kang wus kabanjur|sigêgên aja kêblaso||
+
+### 29.
+Tanpa gawe dinarus|wah mangkono ta kêna ing ngaru|nora kêna ing urut dèn-bobolèhi|ingalah kalawan wuruk|lwih anggêpe anggon-anggon||
+
+### 30.
+Jayèngraga tumungkul|karaos tyasira kang wus luput|lir ginirah jrênihira awiwinih|barêsih galih tan guluh|sinuluha wêktu êloh||
+
+### 31.
+Ing wanci têngah dalu|samya mapanakên anunungku|kawiridanira salsilahing dhikir|amupit marang Hyang Agung|arahab dikir sinêntor||
+
+### 32.
+Kongsi ing wanci bangun|pajar gidib laju wêktu Subuh|bakda salat pupuji kongsi byar enjing|sunat Luka sawusipun|Jayèngrêsmi ngandika lon||
+
+### 33.
+Lah wus payo amudhun|matur kang rayi sumanggèng kayun|gya tumurun saking pupucuking wukir|alon agujêngan watu|lêstari mudhun praptèng sor||
+
+### 34.
+Asasalaman gupuh|lan kang paman Ki Kulawiryèku|myang Nuripin salaman gupuh ngabêkti|samya bagyanan rahayu|Ki Jayèngrêsmi nabda lon||
+
+### 35.
+Suwawi paman laju|ngupaya kang anjok margi agung|satibane kewala anuting margi|Ki Kulawirya jumurung|anjurudêmung saking (ng)gon||
+
+### 624
+Jurudêmung 1.
+
+### 624
+Yata laju alêlampah|anapak lêbak pupundhung|anêtêr lunguring gunung|anasak wana wulusan|marga kèh dèrèyanipun|tambuh kang tinut simpangan|asring kalurung kapaung||
+
+### 2.
+Katundhuk wong dhadhampalan|jalwèstri mèt godhong kayu|tumingal ring kang lêlaku|anarka lamun kasasar|dudu paraning dêlanggung|wong dhadhampalan sru mojar|baguse (n)dika puniku||
+
+### 3.
+Jêng têng pundi pinaranan|Ki Kulawirya amuwus|ki sanak rika tutuduh|manira tan pati dhamang|dalan kang anjog marga gung|mangetan ingkang ngabanar|kang kambah kèh wong lumaku||
+
+### 4.
+Kang tinanya saurira|(n)dika bali malih ngidul|joge kang dhatêng marga gung|[---]|[---]|ngetan mring Kalangbrèt rawa|ngawirya tri sarèng muwus||
+
+### 5.
+Lah (ng)gèh kisanak manira|katulung tuduh dêlanggung|kalangkung tarimanipun|wus paman andum waluya|ngong wangsul ngênêring Kêpuh|jinurung gya nulak lampah|satêngah onjod dohipun||
+
+### 6.
+Praptèng Kêpuh joging marga|samya lêjar tyasira wus|manggih marga gêng lastantun|mangetan lampahira gya|sring papaganing lêlaku|kaoran bêntèring surya|non dhusun pêdhak marga gung||
+
+### 7.
+Nimpang raryyan soring nangka|angèrêkkên suku rapuh|ana wong mikul waluku|mulat ring kang lagya raryyan|amire sèlèh waluku|mundhuk-mundhuk marêk ngarsa|sarwi ngusap-usap bau||
+
+### 8.
+Nêmbrama dalêm katuran|ngawirya katri sumaur|
+
+ê
+
+### 8.
+nggèh sami-saminipun|lah paman manira tanya|kang pundi prênahipun|krajaning Kalangbrèt rawa|ingkang tinanya sumaur||
+
+### 9.
+Inggih punika kewala|ngalèr-ngetan jêbulipun|Kalangbrèt karajan agung|ananging kula pitêdah|ing lampah prayoginipun|kampir dhatêng padhêkahan|kang winastan dhusun Gubug||
+
+### 10.
+Padardi ngungkang bêngawan|ardi Purwa namanipun|pan wontên pandhitanipun|
+
+è
+
+### 10.
+di wruh dèrèng winarah|Sèk Ekawêrdi rannipun|pan dadya patakonan|punapa sasêdyanipun||
+
+### 11.
+Barang kang tinakèkêna|jalwèstri tan ana wangsul|wong pundi-pundi mariku|Jèngrêsmi mèsêm andika|sun-trima tuturirèku|dhasar manira ngupaya|pandhita ingkang linangkung||
+
+20 ( Anglangkungi ardi Purwa dumugi dhusun Gubug) Angsal pitêdah lampahipun tumuju Kalangbrèt, anglangkungi ardi Purwa dumugi dhusun Gubug. Nuripin kautus ngupadosi dalêmipun Sèh Ekawêrdi, mitranipun Ki Bayi Panurta. Para tamu katampi Ki Sèh Ekawêrdi dalah semah lan anakipun èstri, Rara Muryati. Liringing netya, Rara Muryati kapranan dhatêng Jayèngraga, makatên ugi Jayèngraga. Dalunipun Sèk Ekawêrdi paring wêjangan, bilih ing ngagêsang pêrlu sumêrap keblat murih kamulyan ing dunya lan kamulyan ing swarga i.p. kanthi ngawula ing nata lan ngawula manahipun piyambak. Ngawula manahipun piyambak, jalaran awakipun prasasat jêjêring Gusti. Kalajêngakên wêjangan bab tatacara lan tata-susilaning ngawula ratu, gampil angèling angabdi sakêlangkung kathah, jangkêp botên wontên ingkang cèwèt. Dumugi Subuh sami solat, lajêng dhahar kêmbul. Jayèngrêsmi pamit badhe nglajêngakên lampah. Kaca 182 – 199 624 Jurudêmung 12.
+
+### 11.
+Sarwi sasmita ring paman|pandhita ingkang tinutur|panuju ing wastanipun|kalêbu cacahing mitra|
+
+-
+
+### 11.
+nira kang-rama ing dangu|mangkana malih ngandika|wus paman ingsun mit laju||Anulya mangkat lumampah|mangetan anut marga gung|anggênggêng ra-ara luhur|bêbangkan wana trataban|tinugar têgal tinunggu|tumuruning kakêndhêngan|lingsir surya wêktu Luhur||
+
+### 14.
+Mararyyan anèng ing sêndhang|samya kadas salat Luhur|sabakdanira awêktu|gya umangkat alon-lonan|rèrèdhon rapuhing laku|tan pati rêncang ing manah|wancyarsa raryyan awêktu||
+
+### 15.
+Bakda salat gya lumampah|wus katon ing desa Gubug|angungkang pagêr kali gung|têmpur lan bênawi Rawa|plabuhan ro sirahipun|rêbut sirah lawan nujang|sirahe plabuhan agung||
+
+### 16.
+Ngandhap Ngasar wayahira|mararyyan sor mandera gung|mumucang ngawirya têlu|Jèngrêsmi aris ngandika|Nuripin sira sun-tuduh|mangsuka maring padesan|takona ing wismanipun||
+
+### 17.
+Sèk Ekawêrdi rannira|Ki Nuripin mèntar gupuh|malbèng padesan ing Gubug|têtakon mring wong padesan|kang tinakèn sauripun|Kae Sèk tan ana wisma|taruka nèng Purwa gunung||
+
+### 18.
+Lamine pan wus rong candra|Ki Ekawêrdi nèng gunung|nèng ngrika panêpènipun|yèn wontên sêdya prapta|kewala nusul ing gunung|sawusira tinuturan|Nuripin anulya wangsul||
+
+### 19.
+Umatur sasêjarira|Jèngrêsmi aris amuwus|yèn mangkono turirèki|lah ya payo pinaranan|
+
+ê
+
+### 19.
+nggonne patrukanipun|mangkat saking parèrènan|nut padhadhahing dhusun||
+
+### 20.
+Angalèr-ngilèn lampahnya|asri patêgalanipun|pagêr rinisig ing wuluh|ngêmohi kang pala-simpar|sangkêp jajangananipun|mawarna akakêdhokan|ambanjêng pagudhènipun||
+
+### 21.
+Anêtêr manjating arga|alit ardi purwa patut|wus cêlak pawismanipun|kang sêdya prapta mararyyan|samya mucang soring nyamplung|Jayèngrêsmi ris ngandika|Nuripin sira sun-tuduh||
+
+### 22.
+Têmuwa marang ki tuwa|manira ayun papangguh|santri Nuripin agupuh|minggah mring pawismanira|tan adangu nulya têmu|umatur talètèhira|ing samula-bukanipun||
+
+### 23.
+Kang myarsa jar suka nabda|kinèn angaturi gupuh|Ki Nuripin sigra wangsul|matur mring bêndaranira|ingaturan kinèn laju|kang ingaturan agêpah|kadya kinanthi tyasipun||
+
+### 625
+## Kinanthi  1.
+
+### 625
+Amanjat pagagan gunung|pèpèrèng tinêgal asri|pinatut abêbanjaran|sêdhêng trumrunaning kitri|ngêmohi sadayanira|kèh sabate samya dhangir||
+
+### 2.
+Ki Sèk Ekawêrdi lungguh|nèng srambine suro alit|awilis winêlit anyar|pinaningrat gumarining|pan ginêlaran kalasa|pandhan pacar bangka putih||
+
+### 3.
+Amanggil pra sabatipun|kinèn awèh wêruh maring|rubiyah lan putunira|sawiji èstri yu kuning|ingugung sakarêpira|wasta Ni Rara Muryati||
+
+### 4.
+Kinèn samêkta susuguh|kang liningan mèntar aglis|mring desa awèh pratela|yata kang sêdya mêrtami|praptèng kori babêthèkan|Ki Sèk mulat ngawirya tri||
+
+### 5.
+Ki Sèk Ekawêrdi gupuh|angudhuni ing palinggih|kang mratamu uluksalam|sinauran salamnèki|ngancaran lênggah paningrat|ing surambi suro asri||
+
+### 6.
+Rahap sasalaman gupuh|ngawirya tri ganti-ganti|binagyan ing karaharjan|winangsulan kramaning sih|rèh patêmbèning pagutan|Sèk Ekawêrdi lingnya ris||
+
+### 7.
+Tabêt paguting pandulu|ing pundi sasanèng wingking|ing ngayun ingkang sinêdya|lan sapa sintên pinuji|ing paparab katrinira|kang sudi sumêdya kampir||
+
+### 8.
+Jayèngrêsmi lingira rum|têtanya pawingkingmami|tanah ing pawintên sowan|pradikan dhusun sawiji|ing karajan Wanamarta|lampah-kawula puniki||
+
+### 9.
+Ingutus sudarma nêngguh|inggih kinèn angulati|kadang tuwa alêlana|nis kalane madya ratri|awasta Sèh Amongraga|tanwrin (ng)gyannya sanèngnèki||
+
+### 10.
+Ngong-ulati angalangut|angayam-alas wanardi|kang sudi mastani aran|apanêngran Jayèngrêsmi|ri-kula ran Jayèngraga|lan paman Kulawiryèki||
+
+### 11.
+Pan inggih wuragilipun|(n)Jêng rama kiyai Bayi|Panurta ing Wanamarta|pradikan Wirasabèki|wangsul palakramèng sêbda|sintên kang sinambat wangi||
+
+### 12.
+Kae Sèk lêgawèng wuwus|bagus tatanya ring mami|kang sudi mastani reyang|Ki Sèk Datuk Ekawêrdi|nakmas mangke ta mangke ta|ingsun myarsa jarirèki||
+
+### 13.
+È
+
+### 13.
+ngêt manira ing dangu|Kae Bayi Panurtèki|dhêdhukuh ing Wanamarta|duk maksih nènèman sami|mitra-manira sabaya|
+
+-
+
+### 13.
+pati golongan angaji||
+
+### 14.
+Kae Bayi Panurtèku|kala maksihe taruni|arane Mas Arundaya|dadya pambataking santri|santri kèh bapa ambiyang|mring kakang Arundayèki||
+
+### 15.
+Anakmas kalinganipun|putrane kakang Kiyai|Bayi Panurta Rundaya|nukuli asigid-sigid|manira angawu krama|marang si kakang Wuragil||
+
+### 16.
+botên anyana sarambut|kalamun sami pinanggih|anakmas kalawan kakang|Wuragil Kulawiryèki|kang sinambrama sukèng tyas|Kulawirya gumuywa ngling||
+
+### 17.
+Inggih sami bêgjanipun|Dhêdhatuk Sèk Ekawêrdi|pinarêngkên ing Hyang Suksma|panggih putranta lan mami|ris nauri inggih ta lah|datan nyana tan andhipi||
+
+### 18.
+Sarya ngling mring sabatipun|kinèn ngènggalakên aglis|sugata maring padesan|kapêthuk tan dangu prapti|Rubiyah lan putunira|Ni Rara Muryati nênggih||Angirit jodhang susuguh|rinukti ing wismanèki|nulya kinèn nyaosêna|pawohan myang wedang kopi|lawan ingkang sasêgêran|sira Ni Rara Muryati||
+
+### 20.
+Angadi-adi rupa yu|asinjang limar kêtangi|kêkêmbên gadhung cêlêpan|pinrada kumudawati|walêr tasik lêlamatan|asêngkang panunggul siji||
+
+### 21.
+Kalpika mirah lan tajug|awida kalêmbak-minging|agêlung pare-karantas|sasolahira kinardi|asèdhêt wanguning kênya|liringe anjait ati||
+
+### 22.
+Naoskên pawohanipun|Jèngraga kabrêbêt liring|sumênut tyasira kontrag|kadaut manising lungit|samya kumêpyuring driya|paguting netra mranani||
+
+### 23.
+Jèngraga raosing kalbu|kagropak amokak-makik|(n)jêjêgi ganjêl tuwêkal|wêkêle akuwal-kuwil|kongkêl wêlakaning wingwal|kinawal sabiling galih||
+
+### 24.
+Ni Rara Muryati rikuh|kabajong ciptaning liring|lir anon gawar larangan|tyas kuwatir kêtir-kêtir|kèngêl kabêntusing tingal|kungsul graitaning galih||
+
+### 25.
+Wusnya naoskên sang ayu|mundur gupuh anunuding|mring rowang ngangkat rampadan|sira Ni Rara Muryati|anangga kêndhi pratola|sasolahe karya brangti||
+
+### 26.
+Sêmbada pasêmonipun|sapantêg sèdhêt mantêsi|amanis suluh wadana|sêdhêng amêpêg birai|misih sangkrip ningit tingal|tan pati paguting liring||
+
+### 27.
+Sapraptanira ing ngayun|wau Ni Rara Muryati|naoskên dhahar rampadan|andharik piring sinaji|(n)jongok siduwa andhêngklang|gêlung lukar mêmak wilis||
+
+### 28.
+Ngêlowong lungsèning gêlung|gêlung maksih ngukêl asri|angulêr-jêdhung kawiwal|ana puspitaning wèni|mêlathi wigar rarasah|kasangsang rema sawiji||
+
+### 29.
+Gêtêr-gêtêr lir mèh runtuh|malathi akanthil-kanthil|Jayèngraga kagigalan|tyasira kèngguh kagimir|myat malathi kang kasangsang|ing rema saêlêr kanthil||
+
+### 30.
+Asêbêl sabiling kalbu|mulat ring Rara Muryati|kang sêdhêng rêspatinira|awèh wigênaning ati|Jèngraga micarèng nala|dudu rasane raryyèki||
+
+### 31.
+Wangune karya wulangun|abêncah rasaning ati|larang liringe pasaja|asingit lungiding wadi|kawadakaning sasmita|asêmu kukuh ngangkuhi||
+
+### 32.
+Mangkana dènnya tata wus|mundur kapaguting liring|tyas lir panjang putra tiba|pacangkinganing kabanting|ing sela rêngkulu ambyar|kumêpyur kalihe sami||
+
+### 33.
+Rara Muryati wus mundur|karikuhan lampahnèki|kakrubyukan dening sinjang|dadya magêr-timun ririh|saparan tinuting tingal|marang Kae Jayèngragi||
+
+### 34.
+Wus andhèr saosanipun|Ki Dhatuk Sèk Ekawêrdi|nyarakkên ing tamunira|sumangga sami wêwanting|agêpah ingkang ngaturan|tuturuh (n)dan lêkas bukti||
+
+### 35.
+Kang nadhah sami pikantuk|dhasare lampah kalantih|mirasa raosing nadhah|anutug dènnya abukti|wus mangkana aluwaran|Ni Muryati angladèni||
+
+### 36.
+Bubucu tinarik mundur|sinungkên marang pamburi|Nuripin pan winarêgan|nulya dhadharan mangarsi|wowohan myang lah-olahan|ngancaran nyanyamik sami||
+
+### 37.
+Angalap sasênêngipun|ing wanci wus tunggang wukir|ngaturan sami akadas|sêdhênge wêktu Mahêrib|para ngawirya agêpah|marang pawariyan aglis||
+
+### 38.
+Samya ngambil toya wulu|Jèngraga nulya ngadani|ing kapti sêmu pinasang|angungkung swara rum manis|angalêp lêpas kumandhang|kêrkêling ngukêl kinardi||
+
+### 39.
+Supayanira rinungu|marang Ni Rara Muryati|dènnira adan maro tyas|linandhung kalimah titis|maknane tan asub Allah|swara ning mring Ni Muryati||
+
+### 40.
+Muryati nora ngrurungu|swarane adan kal sih|mêntuling swara nyêntug tyas|lir sari pinurwèng warih|gagasing driyasmu brangta|
+
+-
+
+### 40.
+nira Ni Rara Muryati||
+
+### 41.
+Solahe sinamur-samur|samar kauningan isin|katêmbèn pinurwèng tingal|ring priya winawèng kingkin|tyasira awirangrongan|mangarang mring Jayèngragi||
+
+### 626
+## Wirangrong    1.
+
+### 626
+Tan cinatur solahnèki|Muryati dènnya wirangrong|ingkang samya salat sawusipun|adan sunat sami|wus sunat kinèn kamat|nulya rangkat prelunira||
+
+### 2.
+Ki Datuk Sèk Ekawêrdi|nabda ngancarani alon|suwawi anakmas ingkang sêpuh|andika ngimami|ingancaran mangarsa|Jèngrêsmi mopo pinêksa||
+
+### 3.
+Anulya Ki Jayèngrêsmi|majêng angimami gupoh|nulya traping niyat sakalangkung|pasêkatirèki|[---]|mat kasare tan sumêlang||
+
+### 4.
+Kalimah sakathahnèki|miratje tan na winaot|sêmbada swaranya manis arum|Ki Sèh Ekawêrdi|micarèng jroning nala|sanyata lamun ngulama||
+
+### 5.
+Nutug praptèng bakda Mahrib|laju wêktu Ngisa rêko|têkèng bakda wasananira wus|mung sunatnya Witir|sawusira paragat|salawat asasalaman||
+
+### 6.
+Nulya wangsul (ng)gyannya malih|mring surambi tata lunggoh|pan wus rinumatan suguhipun|dhadharan mawarni|ingancaran nyamikan|angalap sasênêngira||
+
+### 7.
+Jayèngrêsmi ngandika ris|mring Sèk Ekawêrdi alon|kawula angalap bêrkahipun|wuwulang ing mami|masalah ing agêsang|pratikêle kang utama||
+
+### 8.
+Sèk Ekawêrdi nauri|dhuh anak wong bagus anom|dene lir sasawat (m)balang kayu|atanya ring kami|tur anakmas wus wus-man|mangsa niliba ing rasa||
+
+### 9.
+Sarèhning mupung kapanggih|sarta katêmpuh ing dhaplok|wikan kalêrêsan ing pitutur|namung lothung ugi|dongènge wong atuwa|lamun piniriting nala||
+
+### 10.
+Ing dalêm gêsang puniki|wajib tyas keblat anggeyong|maring kadadeyan kang linuhung|kamulyane urip|lan kamulyaning pêjah|kang bisa ahli sawarga||
+
+### 11.
+Dene gêgèyongan inggih|keblate budi kang manggon|mungguh pangawula kang wus sinung|ing kalih prakawis|ngawula ing narendra|lan ngawulèng tyas priyangga||
+
+### 12.
+Lire ngawula ing ati|prasasat pangawak Manon|
+
+wong ngawulèng driya tansing minggun(?)
+
+### 12.
+|pakarti liyaning|aja anungku-nungge jiwa|kewala ing dhèwèkira||
+
+### 13.
+Kang dungkap pratomèng kapti|osiking tyas kang linakon|tan sumêdya cidra rèhning kalbu|tan pilih tan wigih|angratu mring budinya|nadyan tumêkèng apapa||
+
+### 14.
+Datan pati dèn-singgahi|tan ketang pringga pakewoh|wus nikmat priyangga datan keguh|marang ika iki|mung badan tinuhonan|pangawulanirèng driya||
+
+### 15.
+Wus mutakik badan budi|beda lan salumrahing wong|tan kêna minajat ing tumuwuh|kawulaning Widdhi|panggayuhing kasidan|ihtiyar ngajab jalaran||
+
+### 16.
+Samya ngudi ing kadadin|mrih babaran kang kinaot|Kae Kulawirya alon muwus|mring Sèk Ekowêrdi|kadi-punêndi lirnya|ngèlmu ngawulèng narendra||
+
+### 17.
+Ki Datuk Sèk Ekawêrdi|lon dènnira miraos|kang wus linampahan anak-putu|kang samya sêdyabti|ngawula ing narendra|myang bupati rangga dêmang||
+
+### 18.
+Tan prabeda ngèlminèki|tatakramaning sila-ndon|sakathahe mitra pra nèm-sêpuh|wruh witing nagari|janma garba sumandha|ulah ngèlmi praptèng praja||
+
+### 19.
+Kang nèm-nèm ngong-pituturi|jarwèng nganom maksih cotho|liring cotho tuna sarwa kadung|durung kèh luwangi|tujêming duga-duga|beda kang wus sêpuh lirnya||
+
+### 20.
+Liring sêpuh anyêpuhi|kenging ingêpuh wong anom|nyawabi sadaya milanipun|wong tuwa puniki|ingkang atawêkal|tawa-tawa pantêsira||
+
+### 21.
+Kakêna tinuwi-tuwi|mring anak putu sêdya-non|lamun lan mangkana datan mungguh|jênêng wong tuwa tuwèking|apan dadi tutuhan|tinutuh tan bisa warah||
+
+### 22.
+Ngandêlkên kèh dinanèki|tuwa dhaplok mègok-mègok|iku tuwa ampas kêmpus-kêmpus|wus luwasing kardi|mangka ing jro suwunga|iku wong cupêt budinya||
+
+### 23.
+Duk anom tan purun ngaji|ngandêlkên awake bèndhot|tan mikir satuma ulah ngèlmu|batin tan praduli|amung eca amangan|tan etang wêkasing gêsang||
+
+### 24.
+Namung ngetung sapucuking|ilat sapucuking dhogol|tan nêdya elinga jroning kalbu|rip wêkasan mati|nèng donya lir sasanjan|tan bêstu anom myang tuwa||
+
+### 627
+## Sinom  1.
+
+### 627
+Ki Kulawirya alatah|suka Jèngraga Jèngrêsmi|mirsa banyoling wirayat|Ki Wuragil angling aris|mangke ta sun-miyarsi|ing kaol satêngahipun|bab ngèlmi pupucukan|wontên ingkang amêstani|apan dadya gêgèyonganing gêsang||
+
+### 2.
+Pucuk guthul pucuk ilat|yèn wus bisa anyukupi|puniku utamèng titah|marêngi pucuk kakalih|kang pundi bedanèki|myang kang pundi saminipun|kang cêgah kang lêguta|sarèhning kaol kakalih|kula dèrèng sumurup mirading basa||
+
+### 3.
+Ki Sèk Ekawêrdi nabda|puniku kakang Wuragil|ingkang mastani utama|inggih lêrês toging ngèlmi|wêkasaning kadadin|kasidan kang bangsa ratu|palal nikmat kamulyan|ing dalêm donya puniki|ratu têtêp dadi musthikaning donya||
+
+### 4.
+Pandhita kang wus utama|têtêp dadi musthikaning|ngakerat pan pinardika|nikmat kamulyan swarga-kir|tan kenging dèn-ucapi|puniku babaring kayun|kang maksih janma mudha|bakal pugêl mring utami|mila kêdah winulang lalambar tapa||
+
+### 5.
+Suprandene supayanya|kacanthèl saking sacuwil|prayayi amandhita-a|surupa pratikêlnèki|miwah ngèlminirèki|kalih prakawis puniku|Ki Kulawirya mojar|dospundi lajênge malih|ingkang ngèlmi pratikêl suwitèng nala||
+
+### 6.
+Ki Datuk Sèk Ekawêrdya|nauri wacana aris|pamulang-sun ring pra-mudha|ywa pêgat tatanya maring|sujanma kang linuwih|kang nêdya kèh gurunipun|(ng)gugulanga kawignyan|sabarang kabisan janmi|ana dhewe-dhewe rurumahanira||
+
+### 7.
+Andhap-asor dhêdhasarnya|pan iya tan kêna lali|angajiya ngawula-a|andhap-asor tan kêna lali|prabot gênging utami|andhap-sor wêkasan luhur|Jayèngrêsmi ris nabda|liripun kadi-punêndi|andhap-asor dadya luhur wêkasannya||
+
+### 8.
+Inggih ingkang ingaranan|andhap-asor ingkang pundi|Ekawêrdi ris wacana|lirnya andhap-asor nênggih|angêsorakên dhiri|nisthaning pangan myang turu|sapala tan mirasa|tan drêmba boga sakalir|solah muna-muni pan sinumapala||
+
+### 9.
+Sapala sawiji sandhang|sapala sawiji guling|sapala sawiji pangan|sapala sawiji angling|sapala tan ngêkèhi|ngênês rajah-tamahipun|de janma ahli praja|suwita marang narpati|andhap-asor rèhning srawungan wong kathah||
+
+### 10.
+Jatmikaning sila-krama|jatmikaning sabda-krami|jatmikaning surèng karyya|jatmikaning karya bukti|liring jatmika ugi|ywa umbak angumbar sanggup|marang sasama-sama|myang mring jênênging bupati|sumawana ing panjênêngan narendra||
+
+### 11.
+Watak kang ngarsa sojaran|amurungakên kamuktin|yèn wus andhap-asorira|wêkasan dadya gunèki|guna yèn tan tabêri|sih kuciwa tunanipun|lan malih wêkasingwang|graita gulangên kaki|wruha lungit ing sêmu bêcik lan ala||
+
+### 12.
+Ing sêmu lèjêm upama|lir angadu pucuking ri|dèn-wasis ahlul sasmita|(ng)gulang nganam manut kaki|dèn-bisa wêrdi budi|langlang panglinging panguwuh|wèh wahya waraning tyas|
+
+(
+
+### 12.
+m)bengkas nambung ganal alit|lukita hèng wong wus sinêbut sujana||
+
+### 13.
+Liring kang bangsa sujana|sujanma ingkang linuwih|putusing sandi-kirana|sastra wicitra ginati|wiweka winigati|yya wirang pruwitèng wuruk|wong wirang têmah nganggrang|liring nganggrang iku sêpi|liring sêpi sirnanting istiyarira||
+
+### 14.
+Dadi wus wong tanpa karya|yèn anom ana pinurih|mukul amêmikul rosa|kinongkon kêbat lumaris|lamun wus tuwa kaki|kaya priye kang tinêmu|têpo cape raganya|jompo ati sêpa sêpi|tanpa rasa dumadi wong tuwa bangka||
+
+### 15.
+Bangsa bangka têgêsira|kumlêkêrên tanpa asil|krana bêcik angugulang|mupung padha sih taruni|sakèh wignyaning janmi|Ki Kulawirya amuwus|lah dospundi dhi Eka|lajênge wulang pèhnèki|anauri (ng)gih kang Ragil Kulawirya||
+
+### 16.
+Angèl traping wong ngawula|nanging luwih gampil ugi|puniku ewuh pinyarsa|liring ewuh durung ngrêti|liring basa mangarti|ngawruhi sadayanipun|barang karsaning nata|yèku panêngran janma-di|tan lêleda wus widagdèng ciptamaya||
+
+### 17.
+Liring maya kawistara|ulat kabayaning ati|kapti-marta kapti-duka|nèng netra susumuknèki|lèjêm sasmita liring|laire darma lumaku|laire utusaning tyas|angsal yèn sampun kadugi|ing-angèle yèn dèrèng mangarti krama||
+
+### 18.
+Nanging wontên bedanira|ngawula marang narpati|prabu sêpuh wus pramarta|lan satriya sih taruni|sabarang karsanèki|yèn satriya nom puniku|pêrlu kalawan sunat|sami patrapipun ugi|dipun popo sinami siyasatira||
+
+### 19.
+Sarat wruh pasanging karsa|wontên pamêpêre kêdhik|kang adoh ing sêmu tatag|sabarang karsaning gusti|dèn-kêbat cukat trampil|kang parigêl barang sangkul|dèn-sarwa ngarti karya|trêngginas mêdhêsi kardi|dèn-abêtah lapa cêgah turu mangan||
+
+### 20.
+Sumêdya atarak-brata|ing puja lawan sêmèdi|amrih dhanganing sakarsa|yèn gusti anuju runtik|poma dèn-ngati-ati|ngawula ji taruna nung|ngadhêpi gustinira|yèn gusti anuju runtik|dèn prayitna prihên lêjaring duduka||
+
+### 21.
+Karana yèn gusti lagya|bêndu lir mubaling agni|angobar tahên suh sirna|tan ana ingkang nulaki|miwah gênging kang banjir|
+
+-
+
+### 21.
+bandhang sing katrajang larut|balikan dèn-angrêpa|atur kang aris patitis|têtêsêna amrih lipuring duduka||Aja amapas ing karsa|têmah amuwuhi runtik|malah sangsaya andadra|bêndune ambêbayani|aywatambuh anênggih|kabubuh kasabêt bêndu|wus kocap ing saloka|satriya nom ambêg wêrit|barang karya sring anggampangakên mangsa||
+
+### 23.
+Wus kaocap ing wirayat|satriya taruna nênggih|basa taruna artinya|taru godhong ênom tuding|ing caraka-basèki|liring tuduh barang laku|kandêl tipising karya|prêlu lan kang nora gati|gampang angèl apan pinadha kewala||
+
+### 24.
+Basa taruna artinira|kayata godhong upami|yèn lagi ana gawenya|kalangkung ajinirèki|tan etang ing pangaji|nglimang-sukoni tinêmpuh|tur ta namung sadhela|sêtun sadina karyadi|yèn wus lawas dadi larahing pawuhan||
+
+### 25.
+Yèku warnining taruna|beda lan prabu-tuwèki|liring tuwa tuwuk nalar|basa nalar tan supe wit|wit ala lawan bêcik|kapirsa sadayanipun|ngragoni jênêng tuwa|liring jênêng anjênêngi|beda lawan ngawula satriya mudha||
+
+### 26.
+Liring nom sih nganam-anam|sabarang kabisanèki|kèh karsane kang mirungga|kang anèh-anèh kinapti|kang angèl pinrih gampil|lamun wus kapanggih sêpuh|nuli bisa animbang|karya ala lawan bêcik|tan kalêmpit duduga lawan watara||
+
+### 27.
+Beda lawan prabu tuwa|kalangkung wingit awêrit|wong kang ngucap sapa bisa|wong iku ngrangkani kudhi|arang bisa ngladèni|angabdiya prabu timur|kèh wong kang tidha-tidha|tan tulatèn cupêt budi|beda lan kang wus bisa ngawulèng mudha||
+
+### 28.
+Barang karsa kinawruhan|tinujon pangrèhing gusti|lir angêmban lare mular|lamun bisa ngarih-arih|anglela nyinyindhèni|lare rèrèh lajêng turu|nglilir dèn-êma-êma|boja langên dèn-sandhangi|kêkêmbangan kuning-bang myang papanganan||
+
+### 29.
+Lare lèngèh-lèngèh bungah|mari mular dènnya budi|agampil kêna pinolah|asal bisa angladèni|mring sang prabu taruni|arikat dêrajadipun|mulane wong ngawula|angèl-angèle angabdi|sinaua angabdi prabu taruna||
+
+### 30.
+Tandha ngalamat prawira|wit angèl wêkasan gampil|gampile yèn wus kacopan|tan sita-sita angsung sih|tandha sujanma wêgig|ngawula ing prabu timur|mukti alambar tapa|muktine dene antuk sih|tapanira nyata anglarani raga||
+
+### 31.
+Wus adat satriya mudha|yèn lagya nêdhêng karsèki|tan etang ing wayah mangsa|mung suka lêganing galih|puniku kang kinapti|mulane ywa kongsi tungkul|yitnanana sadaya|ing tata kalawan titi|duga-duga watara kira prayoga||
+
+### 32.
+Liring tatapa linggihan|saêngokkan dèn-kaliling|ywa liru gêng alitira|liring titi angawruhi|traping sawiji-wiji|mring sasami myang sor luhur|liring kira miminta|basa kramaning gêng alit|dèn-watara myang riringa ing sareka||
+
+### 33.
+Liring ringa kang ajrihan|barang-karya tan ngaduki|kang gampang pinèt angèlnya|lir pugal boboting kardi|karya gêng lan karya lit|tan tumpang-so garapipun|lira basa prayoga|pinrih sasêdhêngirèki|datan kurang tan kaduk sangkuling karya||
+
+### 34.
+Surup ingkang aduduga|mobahe karyaning ati|prayoga yèku pangucap|yèn wus kaduga prayogi|reka dadining ati|laire darma lumaku|titising pamicara|yèn wus têpung lawan pikir|surupipun riringa puniku netra||
+
+### 35.
+Andulu bêcik lan ala|barang kudu nguningani|kang patut lawan kang nora|surupe watara kuping|agati ing pakarti|tanggaping tangguh pitutur|suruping tata tangan|terampil candhaking kardi|basa titi suruping sikil lumampah||
+
+### 36.
+Acadhang sabarang karya|kudu aglis anglakoni|wong ngawula ing narendra|kudu wruh ing nêm prakawis|supaya tan amanggih|ing kadudoning sisiku|kawadakèng narendra|malincur ciliking kardi|dadya gusti datan arêmpêng sihira||
+
+### 37.
+Owêl sung sih wong leleda|malah-malah anyirèni|sajêge tan pinitayan|wong ngucira barang kardi|mila kang ngati-ati|katona sumungkêmipun|marang karyaning nata|minta sih rambatan kardi|kadi ugi tan manggih cêla cilaka||
+
+### 38.
+Rahayu sajênêngira|kang wus matêng nêm prakawis|dadya wawatoning praja|pinitayaning narpati|mêngkoni ring wadya ji|wong kang sêm sumungkêmipun|sumêdya ngèstu praja|atutup kalih prakawis|mawasing tyas suka-duka winaskitha||
+
+### 39.
+Wit suka anêmu duka|wit duka suka pinanggih|sadurunge kinawruhan|anêdya ambêg prihatin|yyambêg suka kapati|yêkti duka kang tinêmu|kang kadya nayakèngrat|(n)jêng Nabi Rasullulahi|angirangi suka mung mèsêm kewala||
+
+### 40.
+Iya ajrih dhêndhaning Hyang|yèn wong suka iku manggih|duduka ingkang tumêka|sadurunge dèn-kawruhi|prayitna rèh ing batin|lawan pambêgannya alus|tan yun mojar lalahan|yèn angling amupangati|asih marang mitra kang ambêg agama||
+
+### 41.
+Aja kaya wong punggungan|yèn suka kacaryan angling|dèn-isis kabèh gusinya|cukakakan gumuywa ngling|eblis amblês ing lathi|saya (n)darung-kadalurung|dènnya asuka-suka|tan eling wirayat ngèlmi|angangrusak panrima saking sêmbrana||
+
+### 42.
+Kêna pangarading setan|eblise nora ngoncati|tan pilih margining beka|wus nunjêm sajroning ati|lamun eblis ngoncati|gêgêtun kapanggih pungkur|
+
+è
+
+### 42.
+ngête kakasèpan|kaduwung yèn wus bilai|kaya priye yèn dadiya janma-tama||
+
+### 43.
+Karantên nak-putu samya|mrihnya utamaning urip|ayya pêgat anastapa|ing siyang kalawan ratri|aja mèngèng ing kapti|tingalira ing Hyang Agung|watêke wong nastapa|tinêkan sakadarnèki|lantar dening nastijab pandonganira||
+
+### 44.
+Jayèngrêsmi Jayèngraga|katri Ki Kulawiryèki|karênan miyarsa kojah|
+
+-
+
+### 44.
+ira Ki Sèk Ekawêrdi|Ki Wuragil ling aris|nora jamak adhi Dhatuk|layak yèn linukita|mring wong anom kang sêdyati|wus anjurudêmung pamulanging jalma||
+
+### 628
+Jurudêmung 1.
+
+### 628
+Ki Sèk Ekawêrdi nabda|inggih katêmpuh ing sêpuh|sawontên-wontêning kawruh|nyukupi nak-putu mudha|pangiwa panêngênipun|kang sênêng jaya sampurna|katambêlan têguh timbul||
+
+### 2.
+Miwah ngaji ngèlmu rasa|sewaka ngawulèng ratu|kathah lire kang tinêmbung|nak-putu ingkang sinêdya|datan wontên sêpênipun|kang têbih-têbih kèh prapta|angalap jangjine ngèlmu||
+
+### 3.
+Pra ngawirya tri samyojar|inggih kados yèn kadyèku|bêrkate katêmpuh sêpuh|pinandhita tuwanggana|mêrdika pinunjung-punjung|barang tinakon sarwa na|nyukupi sakèhing wuruk||
+
+### 4.
+Ki Ekawêrdi ris nabda|suwawi sasambèn ngriku|sawontênipun wong nganggur|agêmah ingkang liningan|angambil nyamikanipun|sinambi awirayatan|apan anutug sadalu||
+
+### 5.
+Ing wanci wus bangun enjang|Ki Sèk Ekawêrdi muwus|suwawi sami awêktu|awêktu mupung sih awal|ingkang liningan agupuh|samya mring pahèran kadas|sawusnya mèt toya wulu||
+
+### 6.
+Jèngraga dènnira adan|swaranira nganyut arum|anggandhang ngêmandhang landhung|wusnya adan nulya sunat|kinamatan ngangkat parlu|Jayèngrêsmi ingacaran|majêng angimami wêktu||
+
+### 7.
+Pinêksa nulya mangarsa|pasekat usalinipun|sadaya angangkat parlu|wawacan wusing Patekah|surat Sujada asujud|rêkangat akir suratnya|sawuse Patekahipun||
+
+### 8.
+Surat Kasar kinunutan|praptèng tayat akiripun|wus bakda dènnya awêktu|sêlawat asêsalaman|pan samya atata lungguh|Jayèngrêsmi lon wacana|paman Sèk yèn parêng kalbu||
+
+### 9.
+Kawula yun papamitan|alaju lampah umantuk|mugi wontên lilahipun|paman Dhatuk Ekawêrdya|pan namung pandonganipun|supaya manggih raharja|Ki Sèk Ekawêrdi muwus||
+
+### 10.
+Dene ta agêlacutan|tyas-kula kalangkung kadung|tan kongsi tuwuk andulu|lamun pinarênging karsa|kongsiya sadasa dalu|nutug tan cuwa ing manah|pra ngawirya ris amuwus||
+
+### 11.
+Sangêt panrima kawula|(ng)gih sadèrèng-dèrèngipun|kawula gêng suka sokur|rèhning kalamèn nèng paran|yèn dadya pangayun-ayun|raka paduka ing wuntat|têmah amêwahi wuyung||
+
+### 12.
+Ki Sèk Ekawêrdi sigra|amanggil rubiyahipun|nulya prapta maring ngayun|Ki Sèk nuding mring rabinya|kinèn angratêngi gupuh|babêkthaka kang samêkta|ni rubiyah lon turipun||
+
+### 13.
+Inggih wus rumat sadaya|won-awon sawontênipun|lah ya wêtokna dèn-gupuh|kang liningan sigra mentar|anuduh mring putunipun|Ni Rara Muryati gêpah|angirid rampadanipun||
+
+### 14.
+Sasolahira rinêngga|pantês salêlewanipun|prapta angladèni ngayun|rampadanira tinata|wus ramut sadayanipun|rampadan tinatèng ngarsa|ni rara mire alungguh||
+
+### 15.
+Sumangga awawantinga|prayoga sasèmèk bucu|sarèhning arsa lêlaku|sawontêne sumapala|kang para ngawirya gupuh|sami atêturuh asta|pan lêkas bukti akêmbul||
+
+### 16.
+Pikantuk dènnira nadhah|kathah lam-ulamanipun|Jayèngraga tanpa-yantuk|nadhah pijêr lêliringan|tan pêgat pagut pandulu|lan Muryati pinurwèng tyas|gumantung tuntunging kalbu||
+
+### 17.
+Muryati apasang cipta|lir puspita sêkar kudhup|sinambramèng nêmbrama rum|angêjêri mara-mentar|juwêt jawating pandulu|ni rara lan Jayèngraga|kadrêng kidhung kadung-kadung||
+
+### 18.
+Anutug dènnira nadhah|ingancaran samya turuh|ambêng cinarikan gupuh|sinungkên mring pamong rencang|Nuripin tinuwukan wus|anêmên pamanganira|dangune angantu-antu||
+
+### 19.
+Ing bakda Subuh kongsi byar|Ki Kulawirya ris (m)bêkus|jêlèh bosên asu buntung|yèn lêga rak ngakak-akak|ambakna wong ngaji pupung|kaya wong nora kaopan|
+
+(
+
+### 19.
+m)bêbadhog tan unggah-ungguh||
+
+### 20.
+Nuripin agarundêlan|andêlna yèn nguwus-uwus|nora anglumuhi batur|wong arêp pangkat tangkatan|kudu marêgi puluk|watir gênjot nèng dêdalan|apêsing wong alêlaku||
+
+### 21.
+Nulya wisan dènnya mangan|
+
+ê
+
+### 21.
+nting lan salawuhipun|wus ngombe atop jumêglug|Ki Wirya anjola mojar|bilah dene kaya bêdhug|atope wong edan buyan|
+
+(
+
+### 21.
+m)bok-sisan ajange iku||
+
+### 22.
+Lah iya untalên pisan|dimèn êntèk aja tanggung|lothung dadiya gagajul|Nuripin apalêrukan|kang myarsa samya gumuyu|mangkana para ngawirya|amumucung ing pamuwus||
+
+### 629
+## Pocung  1.
+
+### 629
+Gya mangayun|Jèngrêsmi alon umatur|pamit anor-raga|mring Ki Datuk Ekawêrdi|sarwi gupuh rahab samya sasalaman||
+
+### 2.
+Alon muwus|Ki Sèk Ekawêrdi nêngguh|pitungkas kawula|namung salam sêmbah-mami|ka-aturna marang rama jêng-andika||
+
+### 3.
+Kakang ulun|Kae Bayi Panutrèku|tuwin ring ibunta|
+
+(
+
+### 3.
+m)bok-ayu Nikèn Malarsih|Jayèngrêsmi alon nuwun aturira||
+
+### 4.
+Sawusipun|salaman gantya mangayun|Kae Jayèngraga|lawan Ki Kulawiryèki|andhèrèkkên kawirêjaning alampah||Naur wuwus|kalangkung panrimanipun|yata pra ngawirya|madal pasilanirèki|(n)dan umangkat saking palanggatanira||
+
+### 6.
+Kae Datuk Sèk Ekawêrdi tumutur|marang tamunira|andonga raharjèng margi|ngawirya tri anolak pangatèrira||
+
+### 7.
+Gya tumurun|ngampat lulungur gugunung|saking padhepokan|wanci wêdharing suryènjing|ngidul-ngetan mawan tirah pagalêngan||
+
+### 8.
+Kèh kadulu|srining patêgilanipun|tatapa sabênan|atulus sarwi ngêmohi|miwah jalma mêgawe akukuduran||
+
+### 9.
+Kang maluku|anggaru namping mamacul|amopok galêngan|watêse rinopoh ing ri|ingkang lagya anglèr ambêdhah tulakan||
+
+### 10.
+Ngambil ranu|sawênèh anglèr wus tandur|kang gumun dha mapak|maratak kumêmping kuning|miwah ingkang lagya rame papanenan||
+
+### 11.
+Lirnya kang wus|myang lagya angundhuh-undhuh|patêgilanira|jalu èstri myang raryya lit|kapinikul ginèndhong sinunggi samya||
+
+### 12.
+Yata wau kang lumampah (n)jog marga gung|pan laju mangetan|turut padhusunan asri|asêluran papagan janma papasar||
+
+### 13.
+Wancinipun|wisan-gawe dènnya laku|nêrak têngah pasar|pasar Sarèn dhusun asri|dhusun Sarèn agêng laladan ing Rawa||
+
+### 14.
+Lêngkung agung|dhusun ing Sarèn puniku|Lêgi pasarannya|ngadêg pajarananèki|pasar Sarèn timbang lan pasar nagara||
+
+### 15.
+Samya umyung tumawon mêmpêngira gung|nampang ing pagagan|randhat dènnira lumaris|saking sangêt kêbêge jalma papasar||
+
+### 16.
+Lampahipun|para ngawirya katêlu|anaratas pasar|kêmput kikis pagêrnèki|mire ngaso anèng sandhaping karoya||
+
+### 17.
+Raryyan lungguh nèng ngandhaping karoya gung|Ki Kulawiryojar|marang ing santri Nuripin|hèh Nuripin baliya atutukuwa||
+
+### 18.
+Apa kang prayoga butuhing ngalurung|ing sasênêngira|mupung sarwa ana iki|iya mangsa bodhowa Nuripin sira||
+
+### 19.
+Nulya gupuh matur sandika tinuduh|tutuku nèng pasar|barang kang butuh nèng margi|miwah ingkang badhe binukti sakala||
+
+### 20.
+Tan adangu Nuripin prapta ngêndhuyuk|(ng)gendhong patumbasan|katur ing bêndarnnèki|Ki Wuragil tanya sing ko(k) borong apa||
+
+### 21.
+Alon matur inggih saprayoginipun|kang kawula tumbas|sampun kawula dudugi|kilap kalêrêsan ingkang dados karsa||
+
+21 ( Lampahipun para andon lêlana mêdal luguring rêdi) Lampahipun para andon lêlana mêdal luguring rêdi nglangkungi sabin ingkang nêdhêngipun rame tiyang anggaru maluku. Ing wanci wisan-gawe dumugi ing dhusun Sarèn wêkdal pêkênan. Nuripin kadhawuhan têtumbas angsal ênjêt lan asêm-kawak sarwi kathah. Nêrusakên lampah dumugi ardi Wajak, ardi Bundhêl lan ardi Tèngèng, dhusun Wajak Watu-urip, nyabrang bênawi Rawa, ningali sêndhang Wajak Patimbulan, sadalu wontên ing ngriku, lumêbêt ing guwa Menak. Bakda Subuh, Nuripin damêl dhêdhaharan saking ênjêt, asêm-kawak lan kêtan dados lêmêng kêtan ingkang murakabi sangêt. Lajêngipun lampah ngidul ngetan dumugi dhusun Bopong. Angsal pitêdah ngênêr ngalèr ngetan dumugi dhusun Wunut ing wana Wratsari anjog dhusun Sarêngat lajêng ngalèr nglangkungi rêdi Pêgat, rêdi alit-alit Bagêndhul ing wana Salêmbut. Kantun sadintên malih badhe dumugi ing Wirasaba, punika prasasat sampun dumugi ing Wanamarta. 629 Pocung 22.
+
+### 21.
+Mèsêm (n)dulu Ki Kulawirya amuwus|ya wus kabênêran|(ng)gonnira tutuku Ripin|nyanyamikan bubucu lan lawuh pisan||
+
+### 23.
+Lawan aduning kinang kang sira tuku|ya lah iki apa|rong buntêl dhe-gêdhe sami|matur inggih apu lawan asêm kawak||
+
+### 24.
+Sru amuwus Ki Kulawirya asêndhu|ih ko(k)-gawe apa|kêparat edan gigingsir|tuku ênjêt lan asêm sapirang-pirang||
+
+### 25.
+Lir wong gêmblung dhêngglêng apa sira bingung|nora kira kira|tutuku kang tanpa kardi|iya jêjêlêna ing cocotmu dhawak||
+
+### 26.
+Mèsêm matur (ng)gih ta lah kula gêgêtun|(ng)gèn-kula tutumbas|asêm suwang (n)jêt nêm dhuwit|dene sangêt mirah mila kula tumbas||
+
+### 27.
+Ngling gumuyu akale wong edan taun|liwat murah pisan|samantên nêmbêlas dhuwit|Jayèngrêsmi Jèngraga mèsêm tumingal||
+
+### 28.
+Lah ya uwus gêbacut (ng)gonnira tuku|nora dadi ngapa|Ki Kulawirya ngling aris|patukonmu bucu nyamikan caosna||
+
+### 29.
+Nulya gupuh Nuripin nyaoskên ngayun|kang sêkul myang ulam|papanganan wus nèng ngarsi|Ki Nuripin mèntar ngupaya lantingan||
+
+### 30.
+Marang dhusun lan tuku dhawêganipun|tan adangu prapta|anulya sami wawanting|dènnya nadhah ampingan witing karoya||
+
+### 31.
+Wusnya tutug bubucu linorod sampun|samya wiwijikan|santri Nuripin abukti|wus luwaran dènnya nadhah mamangsêgan||Sawusipun rêrêm dènnya so nèng ngriku|Jayèngrêsmi nabda|lah paman kadi-punêndi|ing lampah punapa-a laju kewala||
+
+### 33.
+Inggih mantuk wangsul margining kang wau|paran andugèkna|tirakat angampir-ampir|ing rêrêdèn manawi antuk pawarta||
+
+### 34.
+Saur wuwus paran sakarsanirèki|ngong anut kewala|saparan pan sun-tutwuri|Jayèngraga nambung aris aturira||
+
+### 35.
+Pênêdipun ing lampah wasisanipun|alajuning tikat|uning jajahan ing têbih|mupung sagêd dadya tatanggêling lampah||
+
+### 36.
+Lingira rum ya bênêr rêmbugirèku|yèn makatên paman|suwawi nimpang ing margi|mring ngardi kang katingalan kidul-wetan||
+
+### 37.
+Patutipun lir sungsun-sungsun dinulu|angrêsêpkên manah|owêling lampah tan kampir|baya pundi rannipun wukir punika||
+
+### 38.
+Naur wuwus kang paman ya êmbuh iku|kajaba ta tanya|nulya katingal wong siji|gya ingawe-awe mring Ki Kulawirya||
+
+### 39.
+Praptèng ngayun|tinanya wong (n)di sirèku|matur kang liningan|pan inggih ing Sarèn ngriki|awon-awon lêbe ing Sarèn kawula||
+
+### 40.
+Ngêndika rum|Jèngrêsmi marang Ki Kaum|
+
+ê
+
+### 40.
+ndi arannira|gunung kang katon puniki|iya dene munggul patute sèbêtan||
+
+### 41.
+Lon umatur|ranning ardi kang kadulu|kang ngandhap punika|ardi Wajak de kang nginggil|ardi Budhêl lan ardi Tèngèng wastanya||Dhusunipun|Wajak-watuurip nêngguh|kalalading krajan|Bantal-padhomasanèki|angling malih pundi margane mring arga||
+
+### 43.
+Aris matur|inggih kewala punika|margi pasimpangan|maring Wajak-watuurip|kêncêng ngidul anabrang bênawi Rawa||
+
+### 44.
+Lajêng ngidul|margi mangetan mangidul|kang anjog ing Wajak|margi kang ngetan puniki|margi agêng kang anjog karajan Rawa||
+
+### 45.
+Wusnya matur Jèngrêsmi malih lingnya rum|ya wus sun-tarima|paman pituduhirèki|(n)dan umangkat katrine anduduk lampah||
+
+630 Mêgatruh 1.
+
+### 45.
+Lampahira angidul anut pituduh|ing wanci surya nêngahi|pan tumampêg panasipun|margèng bubulak atêbih|tan ana kayon kang ngayom||
+
+### 2.
+Ara-ara bêbangkak têla-têlanggung|siti lincat ngrakal curi|Nuripin agigah-giguh|(ng)grêsah garundêlan angling|bilah murungakên uwong||
+
+### 3.
+Ngisor dhuwur ambutuhkên wong lumaku|dhuwur panas ngisor krikil|nora na kayon gêng ngaub|sasat dèn-pilara mami|dhasar onjotane adoh||
+
+### 4.
+Iki ara-ara arannipun|ambane kapati-pati|nora mambu singkal pacul|bêbangkan sajêg-jêgnèki|lêmah nora wawoh uwong||
+
+### 5.
+Ki Wuragil Kulawirya sru amuwus|gagabêre andalêming|
+
+ê
+
+### 5.
+mbuh-êmbuh kang dèn-tutuh|ngodhal-adhil bumi langit|tan idhêping nora ilok||Jayèngrêsmi angling marang santrinipun|yèn kêpanasên Nuripin|panase anèng sirèku|tawêkalna tyasirèki|aywa ngrêsula ing batos||
+
+### 7.
+Yèn wus ana sira raosing suryèku|panase nora nêkani|katulak ayêming kalbu|ya kaya mangkono ugi|caritane ngakerat donya||
+
+### 8.
+Wong pinangan ing api naraka besuk|wong kang tanpa ngamal nênggih|kêkêl-kêkêl nèng nraka gung|matêng pinanganing gêni|myang saliyaning siksa bot||
+
+### 9.
+Beda lan wong kang duwe ngamal saèstu|rahayu saking yumani|api narakane linu|datan tumama namèngi|ngamale panulak jakom||
+
+### 10.
+Ati suci panrima amal linuhung|kang sukur marang Hyang Widhi|suruding siksa linuhung|lantar panrimaning ati|kiyasing Kadis mangkono||
+
+### 11.
+Kauripan ya ing dalêm dunya iku|utama sarèh ing budi|têgêl panarimanipun|kang ala tinampan têcik|yêkti bêcike pinanggoh||
+
+### 12.
+Kaya kiye panas nglarani sakojur|yèn sira sukuring ati|titi kawuryaning ayu|yuwana nikmat pinanggih|kaya mangkono uga wong||
+
+### 13.
+Manthuk-manthuk Nuripin aris umatur|baya lêrês kang wirayit|ujaring Kadis puniku|mungguh panrimaning ati|tinarima ing Hyang Manon||
+
+### 14.
+Mung dilalah badan-kawula satuhu|kang apês kêpati-pati|tan wantala panasipun|ing surya miwah kang bumi|beda kang wus utamèng (n)don||Bokmanawi mantune Kyai Pangulu|ing Lêmbuasta sinandi|datan kawêkèning kalbu|antuk sawabe kang ngèlmi|Kulawirya krasèng batos||
+
+### 16.
+Yèn sinêmon Nuripin ingkang pamuwus|gya animpang ngukup curi|sinawurakên agupuh|(ng)graita Nuripin aglis|animpang sarwi malerok||
+
+### 17.
+Ngudubilah opène wong namur wuwus|wau ujare Nuripin|sarwi mungkur andêkukul|kinarutug padhas curi|gigire pating talèdhok||
+
+### 18.
+Bêkah-bêkuh ulate rangu asêngut|Ki Ragil ngacungi bithi|sarwi mojar manis arum|lah mareneya Nuripin|sun-ganjar sangu sihingngong||
+
+### 19.
+Luwih gêdhe lalabuhanira ing dangu|sapa baya mitulungi|mung sira kakasih-ingsun|kang labuh lara lan pati|anèng sajroning pakewoh||
+
+### 20.
+Jayèngraga (ng)graita mèsêm ngacêmut|nanging datan nambung angling|ajrih ing raka kang sêmu|kadi anawung rudatin|dadya amung amalèrok||
+
+### 21.
+Jayèngrêsmi tan sambung ingkang sinêmu|wit tan wikan ing sasandi|yèn kang paman darbe laku|mangka usadaning sakit|angramuhi kuda wadon||
+
+### 22.
+Dadya angling malih kang mangka pêpemut|hèh Ripin ujaring Kadis|piyarsakna dèn-kalêbu|sarasaning rapal iki|manawa bisa amanggon||
+
+### 23.
+Amung lowung kinarya panamur laku|mangkono jarwanirèki|sing sapa arsa nunuwun|nikmat manpangating Widdhi|dèn-bêtah rakasèng batos||Kang sinandhang panas pêrih badanipun|iku mung panggawe lair|lamun winêngku ing kalbu|sabar tawêkaling ati|abêr tan karasèng batos||
+
+### 25.
+Yèn tyasira narima ing bêgjanipun|apa kang sinandhang iki|ketang bêkti mring Maha Gung|ing wuri iku sayêkti|winalês ganjaran kaot||
+
+### 26.
+(n)Tuk pitulung rasa kang nikmat satuhu|dèn-pracaya ing Hyang Widdhi|dene dahat asihipun|marang titahe puniki|datan mawi apilih wong||
+
+### 27.
+Ala ayu rinêksa maring Hyang Agung|tan kongsi kurang rijêki|pinrih ing rahayunipun|ing awal praptaning akir|rinêksa dening Hyang Manon||
+
+### 28.
+Ki Nuripin mung macucu datan muwus|lumaku agrigah-grigih|saking panas ngandhap luhur|karikil padhas acuri|Kulawirya angling alon||
+
+### 29.
+Lagi iki sun-wikan antênging wêdhus|jojogedan kadi kambing|kacitan gimbal kang wulu|abusana kadya janmi|mung yèn muni gêmbar-gêmbor||
+
+### 30.
+Lah nèng ngêndi sasamatira ing mau|apa wus kêntèkan Ripin|tekadira kang marusul|dharêsêlan kadya anjing|Nuripin tambuh malerok||
+
+### 631
+## Gambuh  1.
+
+### 631
+Wanci Asar prapta wus|anèng Wajak-watuurip dhusun|pan kapapag ana wong mijil sawiji|ngancarani pinrih maju|katuran malêbèng dhukoh||
+
+### 2.
+Wus samya tata lungguh|anèng salu jawi kering pintu|anambrama wau ingkang darbe panti|kapênêdan lampahipun|paduka praptaning ngêndon||
+
+### 3.
+Ing pundi kang kapungkur|miwah karsa kang sinêdyèng kayun|myang pinuji paduka prapta ing ngriki|baya têbih sangkanipun|kalarat ingkang pasêmon||
+
+### 4.
+Paran sinêdyèng kayun|baya karsa tirakat ing gunung|(ng)gih kawula mangka kuncining kang ardi|pangiriding lampahipun|sagung kang arsa tumonton||
+
+### 5.
+Jèngrêsmi lingira rum|rika paman tatanya maring sun|santri papa angumbara turut ardi|tirakat mung pamrihipun|karya ihtikating batos||
+
+### 6.
+Lamun rika panuju|ngatêr lampah sumêngka ing gunung|Kyai Kunci graita sêmune sandi|lamun ngawirya nanamur|dadya amung matur alon||
+
+### 7.
+Yèn kaparêng sang bagus|pan pun bapa arsa asusugun|sawontêne kadaripun tiyang ardi|Jèngrêsmi ngandika arum|tan susah paman susugoh||
+
+### 8.
+Sun-arsa munggah laju|yèn kasêlak Hyang Arka asurup|(ng)gih sumangga kawula ngatêring laris|mangkana sarêng manuntung|wong lima sarêng abodhol||
+
+### 9.
+Babondhot kayu taun|warna-warna wulusan arungkut|tan antara anon bêbêganing warih|malêmbung toya kumucur|sumrèwèh mili malorot||
+
+### 10.
+Watuurip jumujug|sêndhang Wajak iku wastanipun|sawabipun dadya patimbulan yêkti|(ng)Gra Kasih Jumuwahipun|muruh anglênga mancorong||
+
+### 11.
+Kang ngalap sami nginum|yèn katrima ana tandhanipun|sirah buthak malinthas rambut barindhil|prapta nyêng-unyênganipun|dadya têguh kadya paldhot||
+
+### 12.
+Anulya sami wulu|salat Ngasar praptèng bakdanipun|waktu rada kakirên ing salatnèki|Ki Kunci nulya mit wangsul|aris lampahe malorot||
+
+### 13.
+Wau ta kang nèng gunung|ngawirya tri lawan santrinipun|wanci surup anulya mèt toyastuti|salat sunat Mahrib laju|Ngisa bakda samya golong||
+
+### 14.
+Dhikir palilahipun|pan sadalu tawakup ing ngriku|enjingira anjajah pucuking wukir|pakarêmaning cêmpurung|garumbul kayu angayom||
+
+### 15.
+Katon pucak anjêmbul|kayu taun marnani arunggud|winastanan watu Dalêm pan awingit|
+
+ê
+
+### 15.
+tuking tirta kumucur|kang mring Watuurip anjog||
+
+### 16.
+Sadalu anèng ngriku|dènnya nimpar asuhul tawakup|eningira anètèr mandhap sing wukir|manjing guwa Menak laju|alêrêm anèng ing kono||
+
+### 17.
+Kongsi dalu tawakup|ngawirya tri lawan santrinipun|guwa Menak dadya patimbulan ugi|yèn katrima tandhanipun|tèngèng sirahe anggèlo||
+
+### 18.
+Praptèng (n)jang bakda Subuh|pra ngawirya nèng jro guwanipun|Kulawirya ngandika ris mring Nuripin|lagi samêngko sun-wêruh|ilang unine si Daplok||
+
+### 19.
+Apa baya sirèku|kajudhêgan ing nala alimut|antènana yèn nginêp sawêngi maning|panyaure duk ing dangu|nèng Lêmbuasta ambadhog||
+
+### 20.
+Nuripin mèsêm matur|pangandika sampeyan puniku|sangêt lêbêtipun karirih karakih|kuru dalah swaranipun|sabênne kothot abèndhot||
+
+### 21.
+Ngawirya ro gumuyu|Ki Kulawirya mojar ambêkus|ih wong edan (n)dadak wani mêmoyoki|rikih pisan wong tan saur|têlung dina angêlowong||
+
+### 22.
+Dubilah ta sirèku|warêg banyu ngombe lir kaluwung|wêwadhukmu nyêmpli kaya impês isi|Jayèngrêsmi Jèngragèku|suka myat ingkang guguyon||
+
+### 23.
+Nuripin mentar mundur|wêlas mulat ing bandaranipun|nulya gita karya nyanyamikan bukti|asêm-kawak dènnya tuku|ingulêt lan apu gupoh||
+
+### 24.
+Dangu pangulêtipun|asêm-kawak cinampuran apu|pan wus piniliyan kalungsunirèki|ingêmplêng limang plêng sampun|binuntêling godhong wowo||
+
+### 25.
+Gya tinindhiyan watu|linêrêmakên Nuripin gupuh|angupaya kêmbang tulupan gya ulih|sangune bras kêtan wau|pinususan ingkang uwos||
+
+### 26.
+Dèn-isèkakên wau|ring kêmbange tulupan tinangsul|Ki Nuripin gupuh dènnya dadèk gêni|lêmêng kêtan kêmbang tulus|binênêm ing mawa marong||
+
+### 27.
+Antaranira uwus|matêng binênêm lêmênganipun|nulya angupaya kêmbang tapak-èsthi|pinèt sarine binubuk|lan kêmbang mênyawun winor||
+
+### 28.
+Myang kêmbang têmpuh-wuyung|lan kêmbang rara-wunan puniku|cinaruban asêm-kawak winêtawis|winungkus ing godhong têmu|pinè sak-aluming godhong||
+
+### 29.
+Rampung sadayanipun|yata kang samya kalêson lungguh|Ki Wirya ngling êndi mau si Nuripin|asuwe nora kadulu|tan adangu nulya katon||
+
+### 30.
+Mèsêm prapta ing ngayun|Jayèngraga angandika arum|iku apa kang sira-gawa Nuripin|kang tinanya lon umatur|inggih won-nganggur sasaos||
+
+### 31.
+Cara rare karyèku|duga-dalêm eca botênipun|akalipun raryyangon sadaya sami|nyanyamikan awon-nganggur|namung lothung tambêl-butoh||
+
+### 32.
+Sinaoskên ing ngayun|Ki Kulawirya latah gumuyu|si Dicêplok mêtu akale pratoin|anulya samya amundhut|lêmêngan kêtan rinaos||
+
+### 33.
+Samya mèsêm gumuyu|Ki Wirya ngling bilah de cumêthul|angluwihi lêmêngan kêtan bumbung pring|plèng-plèng-asêm-(n)jêd ya-enul|cumêthul lir jênang dodol||
+
+### 34.
+Lah iki kang dèn-wungkus|wis blêgtape rasane amadu|kêna sibat bisa lah-olah si Padhil|kang putra samya gumuyu|angalêmbana ing raos||
+
+### 35.
+Dènnira bukti tuwuk|sisa sinungkên mring santrinipun|wus mangkana nutug ing sawêngi malih|ing sadalu enjingipun|Ki Kunci prapta ngarsèng (n)don||
+
+### 36.
+Jèngrêsmi lingira rum|paman Kunci sirèku anusul|matur inggih yèn sampun luwaring kardi|kula turi raryyan dhukuh|kawula sampun sasaos||
+
+### 37.
+Jèngrêsmi ngandika rum|
+
+ê
+
+### 37.
+nggèh sun-tarima sihirèku|manirarsa kewala laju alaris|
+
+ê
+
+### 37.
+ndi margane kang mungguh|(ng)gwan kang wus kambah maring wong||
+
+### 38.
+Saenake lumaku|tirakat satibane ing ngayun|lon umatur Ki Kunci mring Jayèngrêsmi|lamun paduka kadyèku|kula sumangga kemawon||
+
+### 39.
+Jèngrêsmi ngandika rum|paman Kunci samya (n)dum rahayu|nulya sasalaman sadayanirèki|sawusira gya tumurun|angraras driya maring sor||
+
+### 632
+## Mijil  1.
+
+### 632
+Mijil margèng ngidul-ngetan ardi|lulungur jurang jro|dadya randhat mangu-pangundhune|aluk-lukan lulukik kang têmbing|pèrèng lêsah miring|parang-rong aparung||
+
+### 2.
+Apan lêpas dènnira lumaris|adulure rondhon|praptèng ngampar sing panètèrane|ngambah wana tipisan tan wêrit|dhèng-èdhènging ardi|tarataban grumbul||
+
+### 3.
+Nampak tatêrusan ingkang margi|kang kaambah ing wong|tan kepêthuk janma sasikine|wanci surya tumawang manasi|sira ngawirya tri|laju lampahipun||
+
+### 4.
+Ngalèr-ngetan narutut dèsèki|padhadhahan ayom|anon ing sêndhang pinggir margane|pan kauban ing wrêksa gayamprit|rau baga bibis|karoya ngrêguyung||
+
+### 5.
+Samya raryyan nèng sêndhang we wêning|padesane Bopong|eca siram labêt grahuyange|wusnya angum ngambil hèr-astuti|mimilih (ng)gyan suci|samya wêktu Luhur||
+
+### 6.
+Kajênêkan gyan bêkti Hyang Widdhi|rêrêm amohansoh|sabakdanira salat Luhure|samya mucang poh ingaring-aring|Nuripin tinuding|atukuwa bucu||
+
+### 7.
+Gupuh lampahira Ki Nuripin|mring dhukuhan Bopong|panggya amitêmbung lan lêbene|kang liningan gupuh anaosi|woh-tiris tan kari|wus samakta gupuh||
+
+### 8.
+Ki Lêbe nutwuri mring Nuripin|praptèng ngarsa alon|tur pambagya mring kang lagya rèrèn|sarwi naoskên sugatanèki|tinarima ing ling|Jèngrêsmi tanya rum||
+
+### 9.
+Rika iku punapi patinggi|apa ta pamogok|kang tinanya alon ing ature|awon-awon kula lêbe-puri|Ki Kulawirya ngling|sarwa sru gumuyu||
+
+### 10.
+Lah kapriye ya basanirèki|lêbe-puri mono|matur nglêbe muni kêndhu bae|rika bisa parikan Ki Modin|Jèngraga Jèngrêsmi|amèsêm gumuyu||
+
+### 11.
+Nulya samya awawanting bukti|kakêmbulan royom|apikantuk lapake kalantèh|pan kapasuk panrimaning bukti|antaranira wis|cinarikan mundur||
+
+### 12.
+Ki Nuripin srigak dènnya bukti|nora nganti wisoh|wus nêngahi têtanya mring lêbe|wawang kang lêbe sami abukti|puluk tan ngèndhani|mathêngkul tumungkul||
+
+### 13.
+Ki Kulawirya angling a(m)bêkik|Nuripin dudu wong|ambakna wong gajêlag bacote|tawa mangan nora (n)dêlêng rai|gawe-gawe angling|nyambat ukur-ukur||
+
+### 14.
+Ing batine sokur ora apti|tutugga ambadhog|sisan dhulange untalên age|yèn ngalontor wus dèn-tohi pati|kapanjingan eblis|murka ngulu-ulu||
+
+### 15.
+Tan angetung pangidhêping isin|sok anggêra nocor|Ki Nuripin macucu lambene|nuli wisuh êntèk kang binukti|sêga lawuhnèki|tan ana kang kantun||
+
+### 16.
+Aluwaran kang anadhah sami|nyamikan rinaos|wus antara nutug parèrène|Jayèngrêsmi angandika aris|wus tarima-mami|paman sunggatamu||
+
+### 17.
+Lan maninge sun-tanyèng sirèki|marga ingkang anjog|maring Wirasaba ing bênêre|kang tinanya anauri aris|pan inggih puniki|margine pinagung||
+
+### 18.
+Ngalèr-ngetan kewala kang margi|prayogi tan watos|palabuhan kang nginggil sabrange|dhusun Wunut wana ing Wrat-sari|ngalèr nabrang kali|mêdal ing wod rajut||
+
+### 19.
+Anjog ing Sarengat ingkang margi|lajêngipun ngalor|ardi Pêgat wana ing truntume|pangêndhênge ardi alit-alit|Bagêndhul mantêsi|lan wana Salêmbur||
+
+### 20.
+Wana Panguncang pangalèrneki|ing Kantha dêmomol|tarutuning desa wawanane|tatasing wana ing Jêramwangi|mung kantun sa-ari|Wirasabanipun||
+
+### 21.
+Malah tan kongsi suruping rawi|lancaring lêlakon|wus tan ngambah wana grêng wêrite|namung tarataban wana nipis|pangrèyan desèki|sapêngaloripun||
+
+### 22.
+Jayèngrêsmi alon lingira ris|paman yèn mangkono|manira mit andum basukine|wus abangêt panarima-mami|rika awèh uning|marga kang saèstu||
+
+### 23.
+Muga samya basukiyèng wuri|sasalaman gupoh|Kae Lêbe nuwun-nuwun ture|nulya asung salam sadayèki|dan umangkat aris|anarimèng tuduh||
+
+### 24.
+Kang ingèngêt-èngêt ing samargi|tuding kang tinuhon|tan mirungga nimpang ing lampahe|datan arsa kampira dèsèki|milalu lumaris|tansah ing wana gung||
+
+### 25.
+Asru pangrêksanirèng abakti|ing waktu tan towong|sampun lêpas wau ing lampahe|tan cinatur solahirèng margi|gantya kang winarni|ing Wanamartèku||
+
+### 26.
+(n)Jêng Kiyai Bayi Panurtèki|gring tyasira giyoh|dening putra karo lan arine|nis tan pracayèng sudarmi|têmah dadya woding|driyaning ramèbu||
+
+### 27.
+Duk samana Bayi Panurtèki|kalanira lunggoh|nèng surambi sakulawargane|miwah para lurah-lurah santri|sakbakdanirèki|jumungahan kondur||
+
+### 28.
+(n)Jêng Kiyai Bayi Panurtèki|
+
+è
+
+### 28.
+mêng tyasnya kepon|tanpatyantuk nadhah lawan sare|kang kaetang pangungunirèki|kang samya tan pamit|ri putra lan mantu||
+
+### 29.
+(n)Jêng Kiyai Bayi Panurtèki|kucêming pasêmon|tan na sojar lêlahan lamine|nadyan mulang tan lir sabênnèki|tyasira lagya gring|onêng maring sunu||
+
+### 30.
+(n)Jêng Kiyai Bayi Panurtèki|angandika alon|mring pra ari wis pira lawase|sutanira ro lan rinirèki|Swarja matur aris|wus tridasa dalu||
+
+### 31.
+(n)Jêng Kiyai Bayi Panurtèki|lingira ngêmu loh|ya ta lah de tan ana tuture|mung bojone kang padha diwangsit|ujare nis sami|tirakat sadalu||
+
+### 32.
+Nora pajar kang dèn-paparani|
+
+ê
+
+### 32.
+mbuh ngetan ngulon|mung mangkono tuture bojone|kang liningan samya anor-ragi|lan malih manawi|sira antuk tutur||
+
+### 33.
+Sutanira lan arinirèki|mring ngêndi linakon|paran nusul ngupaya ipene|apa dhasar tirakat pribadi|dene kongsi lami|sasasi tan mantuk||
+
+### 34.
+Pêndhak tanggal kaping pitu iki|dènnya lunga (m)bolos|priye karêpira ing bêcike|têka bangêt dhêdhêle tyas-mami|têmah amuwuhi|kasusahan iku||
+
+### 35.
+Pra ri Swarja lan Wiradhusthèki|Panukma Panamor|samya matur tadhah dudukane|sring pitakèn-takèn bokmanawi|wontên ingkang uning|(ng)gyanning-kang jinujug||
+
+### 36.
+Sami datan wontên kang udani|dènnya lalana (n)don|Kae Bayi gèdhèg-gèdhèg linge|ya wus padha dodonga ing Widi|kang padha lumaris|salamêting laku||
+
+22 (Kyai lan Nyai Bayi Panurta sungkawa dene kesahipun para putra) VII. Ing Wanamarta Kyai lan Nyai Bayi Panurta sungkawa dene kesahipun para putra tuwin adhi tanpa wontên pawartos. Nikèn Tambangraras siyaga ngawontênakên kêndhuri mêmule Kangjêng Nabi Rasul murih wilujêng sadayanipun. Wêkdal punika Jayèngrêsmi, Jayèngraga lan Kulawirya sami dhatêng. Kadangu, ngaturakên lêlampahanipun kabar tanpa angsal kabar bab dunungipun Sèh Amongraga. Kyai Bayi Panurta lan Nyi Malarsih sakalangkung sungkawa jalaran kesahipun putra kêkalih tuwin adhi tanpa wontên pawartosipun, Bakda Luhur Kyai lan Nyai tindak dhatêng griyanipun Nikèn Tambangraras. Kawontênanipun sangêt mêmêlas, tansah mangangge sarwa pêthak botên nate gantos labêt saking sêdhihipun tinilar ing kakung. Wêkdal samantên sawêg siyaga kêndhuri mêmule Kangjêng Nabi Rasul murih wilujêng sêdyanipun. Bakda Isa Pangulu Basarodin dhatêng angiringi Jayèngrêsmi, Jayèngraga ingkang nêmbe dhatêng, sami sarimbit, ugi kalihan Kulawirya kadhèrèkakên Nuripin. Sami kabagèkakên Kyai ingkang ngêmbêng waspa. Saparipurnaning kêndhuri Ki Bayi andangu para putra. Aturipun, ing lampah tansah têtakèn dhatêng para ngulama ing padhepokan pundi-pundi bab linggaripun Sèh Amongraga, nanging botên angsal titik ingkang kenging kaajêng-ajêng. Ki Bayi tuwin Nyai ngungun sangêt sangsaya sungkawa. Mirêng aturipun para rayi, Nikèn Tambangraras sangêt karanta-ranta manahipun. Ciptanipun punapa Sèh Jayèngraga botên karênan dhatêng awakipun. Wêkasan sadaya santri bibaran. Kaca 212 – 218 632 Mijil 37.
+
+### 36.
+Sadaya tumungkul matur inggih|maksih ngandika lon|payo padha abubaran mulèh|sarwi ngadêg geyongan têkên cis|sigra santri Luci|nyandhak slêpènipun||
+
+### 38.
+Samya bubaran sadayanèki|jalwèstri tuwa nom|samya ngiring marang (n)Jêng Kyaine|praptèng paregolan kandhêg sami|nulak laju mulih|mring pawismanipun||
+
+### 39.
+Sowang-sowang simpangan ing margi|sakèhe para wong|para ari miwah pangulune|(n)Jêng Kiyai Bayi Panurtèki|uluk-salam nuli|sinauran umyung||
+
+### 40.
+Praptèng wisma (n)Jêng Kiyai Bayi|sawusira Lohor|gya mangetan myang garwa karsane|maring wismanira ingkang siwi|Tambangraras nênggih|kang lagya monging kung||
+
+### 41.
+Salaminya tinilar ing laki|anandhang wirangrong|Nikèn tan arsa lungsur wastrane|nunggèng sinjang kakêmbênanèki|rukuh tan asalin|ing salaminipun||
+
+### 42.
+Sarwa seta sauyun tar lyaning|rupa kang inganggo|busananira duk pangantyane|citraning jalêngut pinrêmasi|buncanging praja-di|nglalamat alimut||
+
+### 43.
+Kasaban ing lêbu anglungsêti|martistang giniyon|ring mastatur sawat pangrêmite|rêngga pangun dayaning panuli|sabaking ngawasis|labête mangun-kung||
+
+### 44.
+Duk amulat maring yayah wibi|praptane kaloron|angurmati Nikèn ing lênggahe|wus satata nèng paningrat wingking|mangkana Ki Bayi|angandika arum||
+
+### 45.
+Adhuh-adhuh sutaningsun Nini|nyawaningsun yêktos|dèn-tawêkal Nini ing-cobane|ing Hyang Suksma sadaya puniki|baya ta ing wuri|pan ayu pinangguh||
+
+### 46.
+Nikèn Tambangraras datan angling|waspanggung drês miyos|kadadaut karasa driyane|ketang ingkang wus anis ing ratri|Malarsih nambungi|kang mangka pangrapu||
+
+### 47.
+Adhuh Nini ywa daya kinapti|pasrahna Hyang Manon|gung lalakon iki sakabèhe|nglaksanani karsaning Hyang Widdhi|tan bisa sumingkir|papasthèn Hyang Agung||
+
+### 48.
+Ingkang putra tan pisan nauri|ginêgêt ing batos|mung tumungkul lan sêgu lênggahe|dadya linggar wau (n)Jêng Kiyai|wangsul maring panti|sa-rubiyahipun||
+
+### 49.
+Gantya ingkang cinaturing kawi|kang gung lalana (n)don|Jayèngrêsmi lan Jayèngragane|Kulawirya kalawan Nuripin|samana wus manjing|Wanamarta dhusun||Wanci Asar jumujug ing panti|wau katri manggon|wus prasabên ing bakda Isane|dènnya arsa umarêg (n)Jêng Kyai|wus gilig kang jangji|Nuripin tan kantun||
+
+### 633
+## Pangkur  1.
+
+### 633
+Nahan wanci bakda Isa|wau (n)Jêng Panurta Kyai Bayi|mangetan lan nyainipun|Ni Malarsih tut-wuntat|Ni Sumbaling Ni Daya tansèng ing pungkur|sapraptaning wisma wetan|mulat Tambangraras lagi||
+
+### 2.
+Anata ambênganira|dènnya kajad arsa mumule maring|nênggih Kangjêng Nabi Rasul|sadasa kang ambêngan|dhudhulange isi ingkang sêkul wuduk|ayam sadasa lêmbaran|ing ingkung sadaya sami||
+
+### 3.
+Anèng ngêncèh dinuduhan|aglar mungging pandhapa ambanjêngi|Kyai Bayi duk andulu|sumambrana wuwusnya|lah bêgjane ingsun tutuwi panuju|pamumalèn sukaningwang|baya amungkasi kardi||
+
+### 4.
+Dhuh êbèng paraning karsa|de mumule makêndhung angêbêki|sumêmbah putra turipun|angsung dhahar kawula|mring (n)Jêng Nabi Mustapa ingkang linuhung|minta basuking samya|kang anggung lalana anis||
+
+### 5.
+Ki Bayi malih ngandika|apa sira wus nuduh nyunyuruhi|pamanira lan pangulu|kula-wangsa sadaya|aturira Ni Tambangraras (ng)gih sampun|tan antara sami prapta|pra kadangira Ki Bayi||
+
+### 6.
+Paparêngan praptanira|Jayèngrêsmi Jayèngraga sarimbit|Kulawirya parêngipun|Nuripin anèng wuntat|Basarodin ingiring santrinipun|samya angsung salamira|wau ingkang lagya prapti||
+
+### 7.
+Suka mulat asmu waspa|Kae Bayi Panurta sarwi angling|lah bageya satêkamu|huwalahu-tangala|dene laku karya sumêlanging kalbu|ingkang sinungan pambagya|mung andhêku tanpa angling||
+
+### 8.
+Aris malih andikannya|Kae Bayi Panurta lah ta aglis|donganana Ki Pangulu|kajatipun Ni Rara|angsung dhahar Mustapa panutanipun|pininta ing barkahira|rahayune kang samya nis||
+
+### 9.
+Basarodin tanggap sigra|kang winaca tilapat minta amin|sawusing tangawutipun|salam (n)Jêng Nabi duta|nulya maca donga swara rum anggalur|aiyêg kang aminira|kadya guyub anahidi||
+
+### 10.
+Anêmênakên kang donga|kèh paminta dadya nunggal panggusthi|wus sampat donga tinutup|lan Salamêt kabula|gya ngidêran ambêng lan wawantingipun|ngancaran samya lêkas-a|(n)dan nadhah sarêng abukti||
+
+### 11.
+Basarodin kokohira|anèng dhuwok pinggan putih ngêbêki|mêmblêg ingkang sêkul wuduk|pinukang ingkungira|saparo bêt rinucah daging angumbruk|nèng godhong lalambarira|Kulawirya mèsêm angling||
+
+### 12.
+Nêmu bêgja raganingwang|lagi prapta amarêngi kêndhuri|parandene nora kaul|beda kang Basar ika|tandangira sabên ari ngaji pupung|kêthaha wit cilik mula|wimbuh tuwa angêpêngi||
+
+### 13.
+Kinayang-kayang puluknya|kacombaran kokohira umili|puluke datanpa kantun|tan kêna kinêpêla|têmah buyar dening akakehan duduh|kadya ingoning kambangan|kuciwa kang Basarondin||
+
+### 14.
+Tan wasis nocor lir banyak|bok-wis nuli dèn-uyub bae gêlis|apa kakang minta bantu|ingsun arsa ngilinga|Basarrodin malerok sih nyamuk-nyamuk|jenggode tètès drèwèsan|lubèring duduh naritis||
+
+### 15.
+Sadaya kang sami mulat|angèsêmi solahira Ki Rodin|rada kanggêg asmu gigu|tètèsaning tumiba|wênèh jaja wênèh pangkon miwah tuwung|tinututan pulukira|lir gogo ucêng kang kêsit||
+
+### 16.
+Tanduk imbuh ingêbyakan|sêkul wuduk silêm duduh kang kanil|nulya astanya angêbur|nèng tuwung kacopakan|saya sêngkut tandangira Ki Pangulu|sadaya wus tutug samya|rahab dènnya sami bukti||
+
+### 17.
+Kukucur cuwo wantingan|ambêngannya cinarikan mring wuri|linorod pra-santri pungkur|gya maju nyanyamikan|pisang raja sadasa tangkêp susuluh|pilihan kang tadhah udan|sadaya wus ngalap sami||
+
+### 18.
+Wau ta Ki Bayi nulya|atatanya mring putra Jayèngrêsmi|dhuh babo ta sutaningsun|paran pawartanira|sira lunga atêlu anis ngalangut|tan mawa angsung pawarta|maring raganingsun nguni||
+
+### 19.
+Karya wimbuhing sungkawa|dènnira nis kewala tanpa pamit|bêgja praptanta rahayu|lah kulup popojara|kadiparan entarira angaluru|marang ipenira ingkang|lalana andon ngasêpi||
+
+### 20.
+Tidhêm sadaya pra kadang|kang nèng ngarsa bela arsa miyarsi|wartane kang angêlangut|mangkana kang tinanya|Jayèngrêsmi manêmbah sarwi tumungkul|aris mangkana turira|ngalim paduka (n)Jêng Kyai||
+
+### 21.
+Tuhu kawula kalepyan|datan pamit maring paduka nguni|saking kadêrênging kalbu|ketang wêlasing kadang|mung sajuga wanudya kataman wuyung|nêdhêngira papasihan|nulya kapisah ing laki||
+
+### 22.
+Samana nuju rarasan|tiyang katri gya kênthêl kang panggusthi|denira arsa angluru|maring Ki Amongraga|mung dinadak sadalu agya lumaku|angampiri mring Pagutan|Nuripin ingkang kinanthi||
+
+### 634
+## Kinanthi  1.
+
+### 634
+Lampah kawula ing dangu|tan ana tinujwèng kapti|amung osiking wardaya|nglalana aturut sêpi|wana arga sinalasah|tan etang pringganing margi||
+
+### 2.
+Kalamun nuju kapranggul|padhepokaning pra ngalim|kampir amrih tatanya|manawi bangkit anuding|ingkang linuru ing lampah|putranta kang nis ing wêngi||
+
+### 3.
+Sinambi mèt warah wuruk|saparan-paran inaling|nanging ta lampah kawula|kadya kinuncang ing Widdhi|ngaladuk tan antuk warta|unggyane kang dèn-ulari||
+
+### 4.
+Mangidul pasisir jêdhug|mangilèn prapta nagari|ing Trênggalèk wangsulira|kathah mitranta kapanggih|ingkang anèng Lêmbuasta|Wiracapa Ki Ngabèi||
+
+### 5.
+Miwah ingkang anèng gunung|purwa aran Tekawêrdi|karantan maring andika|ketang kumpul duk samya lit|kathah ing wawarahira|dhatêng ing kawula sami||
+
+### 6.
+Sangsaraning lampah ulun|titiga sami mêpêki|nanging bêgjane sadaya|dene rahayu pinanggih|kongsi bangkit praptèng wisma|umarêg paduka Kyai||
+
+### 7.
+Kongsi sacandra ing laku|mêksa datan antuk warti|dununge nênggih putranta|kang anis Sèh Amongragi|kalangkung sungkawa-amba|ketang kadang yayah wibi||
+
+### 8.
+Marmanta anulya wangsul|ngrasa jêdhuging panggusthi|bok-manawa dèrèng mangsa|karsane Sang Amongbrangti|maksih sinamar unggyannya|marmanira tan pinanggih||
+
+### 9.
+Mangkana Ki Bayi ngrungu|aturing putra tanapi|garwa miwah kadang samya|tarlèn sagung para santri|kalangkung pangungunira|kang waspa sami umijil||
+
+### 10.
+Tambangraras duk angrungu|aturing ri Jayèngrêsmi|kararantaning wardaya|karasa locitèng galih|kadya mangkata priyangga|nêmpuh ngulari mring laki||
+
+### 11.
+Osiking driya ngalangut|kararantan jroning ati|mangkana locitanira|katuwoning raga-mami|tinitah dadya wanodya|datan sinarjon ing laki||
+
+### 12.
+Saking gêng cedaning kalbu|tan layak ngong angabêkti|maring priya kang utama|kuciwa angaku luwih|kumudu-kudu ngakênna|rabining janma ngulami||
+
+### 13.
+Dhuh kakang pupujaningsun|apa ta tan tulus ing sih|maring cèthinta kasmala|apapa gung nandhang kingkin|paran mendra tanpa warta|rabine tinilar anis||
+
+### 14.
+Baya tan sarju maring-sun|luhung pulungên wak-mami|kadadawa larasmara|adangu manggung wiyadi|dhuh gustiningsun priyangga|lunasên ragèng puniki||
+
+### 15.
+Tambangraras marêbêl luh|tan kêna dipun-sayuti|angêbêsi jajanira|awlas kang samya umèksi|Ki Bayi sagarwanira|angrês mulat marang siwi||
+
+### 16.
+Dadya ris andikanipun|dhuh nini aywa kalantih|anggugu limuting driya|mangsa ta têmbe tan panggih|kalawan ing lakinira|manawa sampun pinasthi||
+
+### 17.
+Saking karsaning Hyang Agung|lagya cinoba sirèki|tiniti kasêtyanira|tan wurung bakal mangsuli|lakinta tuhu utama|mangsa niaya ing rabi||
+
+### 18.
+Anging wataking aluhung|tan kèrêm wibawa mukti|sêngsêm anèng kahênêngan|kulina sabèng asêpi|lamun wus jumbuh ing karsa|yêkti sira dèn-balèni||
+
+### 19.
+Mangkana sang Mangonêng-kung|Nikèn Tambangraras myarsi|pangrapuning ramanira|wontên lêjaring panggalih|katon bingaring kang naya|sumèndhè karsaning Widdhi||
+
+### 20.
+Mangkana wus têngah dalu|Ki Bayi dènnya nuguri|nèng wismanira Ni Rara|anèng lêrêm sawatawis|anulya sami bubaran|Ki Bayi kondur lan swami||Para kadang miwah sunu|miwah sagung para santri|sadaya bubaran samya|sewang-sewang maring panti|nahên ta ing Wanamarta|gantya kang andon pasisir||
+
+### 22.
+Wau Ki Sèh Amongluhung|anèng Mataram nagari|Ardi-kidul kang jinajah|angungkang urut pasisir|dadya pangèdhêpanira|sagung janma ing pasisir||
+
+### 23.
+Anèng Kanigara dhusun|dadya gununganing janmi|gêng luhur ing masjidira|kêbak ingkang para santri|nanging tan tulus santrinya|sarengate bosah-basih||
+
+### 24.
+Tanpa tata salatipun|saking kayungyun ningali|kaelokan sukanira|pakartine Jamal-Jamil|akarya pangeram-eram|dadya pangunguning janmi||
+
+### 25.
+Atilar salating waktu|sagunging wong tanpa budi|kadya ginêndam ing kêmat|bilulungan sabên-ari|jalu kalawan wanita|tanpa tata laki-rabi||
+
+### 26.
+Lir sato pipindhanipun|mangkana Ki Jamal-Jamil|inguja sasolahira|dene ri sang Amongragi|langkung manungku ing puja|tawakup marang Hyang Widdhi||
+
+### 27.
+Amapan anèng ing tajug|tan êsah ing siyang ratri|cêgah nadhah lawan nendra|ingkang ginusthi ing galih|amung purnaning sarira|sarana manjing utadi||
+
+23 ( Sèh Amongraga sampun wontên Ardi Kidul talatah Mataram) VIII. Kocap Sèh Amongraga sampun wontên Ardi Kidul talatah Mataram. Jamal Jamil tansah ngebarakên ngèlmu sikiripun saengga tiyang jalêr èstri tilar padamêlan lan suba-sita. Pawartos makatên katur Sinuhun Sultan Agung, lajêng utusan Tumênggung Wiraguna bêkta prajurit kinèn ngrampungi Sèh Amongraga. Kalampahan Sèh Amongraga kapidana, kabronjong kacêmplungakên sagantên kidul. Jamal Jamil lumajêng dhatêng Wanamarta. Sèh Amongraga sampun sawatawis dumunung ing dhusun Sêmanu Ardi Kidul talatah Mataram. Sang Luhung tansah mêmpên manêkung ing krobongan salêbêting masjid. Jamal Jamil ngirup tiyang maèwu-èwu kanthi pangeram-eramipun ngèlmu sikir. Wêkasan kapirêng dening abdidalêm katur ing panjênênganipun nata. Kangjêng Sultan Agung animbali Tumênggung Wiraguna lan Tumênggung Wirajamba kadhawuhan ngrampungi wontênipun Sèh Amongraga, kaparêng nganthi prajurit sacêkapipun. Sèh Amongraga ngadhêp mabukuh ing ngarsanipun sang Tumênggung, botên suwala kapidana ing ratu. Sariranipun lajêng kabronjong, kabuncang ing alun, wêkasan wangsul ing dharatan tanpa isi. Ing ngantariksa kapyarsa uluk salam sarta suwantên: "Dhuh Kyai Wiraguna, aturna bêkti kawula dhatêng Kangjêng Sultan Agung. Sampun kalêksanan karsanipun, kawula uwal saking ing dunya'. Kaca 219 – 225 634 Kinanthi 28.
+
+### 27.
+Kèsthi sêrikirèng kalbu|bêdhahing Giri ing nguni|kasoring sudarmanira|Sunan Giri ing ajurit|binêdhah saking Mataram|Pangran Pêkik kang nindhihi||
+
+### 29.
+Dadya tyasira kalamun|jinurung marang ing Widdhi|arsa tandhing amalêsna|mèranging rama ing nguni|nênggih maring Kangjêng Sultan|Agung ing nagri Mantawis||
+
+### 30.
+Mangkana Sang Among Luhung|kadya wus rucating dhiri|alingga sarira Suksma|anjajah panimparaning|(n)Jêng Sultan nagri Mataram|datan kasamaran yêkti||
+
+### 31.
+Guwa Langse kang tinuju|Song-pati têpining tasik|miwah kawahing aldaka|nênggih pucaking Mêrapi|saparan wus kadhinginan|dening Sultan ing Mantawis||
+
+### 32.
+Atilar tatabêtipun|dudubang nêmbe kawijil|asru mèranging wardaya|wau risang Amongraga|dadya gung manungku puja|anèng jro tajug tarêtib||
+
+### 33.
+Tan liyan ingkang sinungku|bangkita dènnya ngungkuli|wahyunira Kangjêng Sultan|nênggih nagari Mantawis|kawuwusa duk samana|wus mangsa dèn-asmarani||
+
+### 635
+## Asmaradana  1.
+
+### 635
+Kadya pamêkaring sari|gandanya mêrbuk rum ngambar|kasilir samiranane|mangkana wahyuning janma|ingkang wus tinarbuka|kuncaranira manguntur|kaswarèng sajagad raya||
+
+### 2.
+Wau risang Amongragi|nurbuwahira kabuka|jinurung ing sakarsane|ginugu saujarira|saciptanira têka|ana sagung kang kinayun|mangkana kaswarèng praja||
+
+### 3.
+Gumyahing kanang pawarti|lidhah sinambung ing karna|ujaring wong pasarane|tumêka pangulu praja|ingkang ngrêksa agama|sarak andikaning Rasul|winênang dening sang nata||
+
+### 4.
+Wus tetela kang kapyarsa|pangimpunira kang warta|pangulu umarêg age|atur wikan Sri Narendra|Sultan Nyakrakusuma|ing Mataram sang aprabu|mangkana ing aturira||
+
+### 5.
+Pukulun (n)jêng Narapati|patikbra atur uninga|kalamun ing wêktu mangke|Ardi-kidul anèng janma|ngaku santri utama|mung kalih sasabatipun|Jamal Jamil wastanira||
+
+### 6.
+Saking wetan dènnya prapti|sang wiku paparahira|Amongraga wau Ki Sèh|inguyun-uyun pra janma|urut pasisir samya|sirna kamanungsanipun|tilar sarak (n)Jêng Mustapa||Ambuka kijab ri-ratri|ilmu sikir kang binabar|rinêngkuh kanyatan kabèh|salah-tonne sakèh janma|kaelokaning Suksma|tan ana kang singgun-singgun|ngrasa praptèng kang sunyata||
+
+### 8.
+Maèwu-èwu kang janmi|wus katungkul pangidhêpnya|tan mawi wirang isine|jalu kalawan wanita|lare miwah kang wrêddha|lir sato upamanipun|tan ana kang tatakrama||
+
+### 9.
+Lumuh ing pakaryan nagri|wus tilar kang bale-griya|tan ngrasa marang ragane|busana sakèh momohan|rinobyong gêgêdhongan|pangrasane sarwa luhung|wus dunung sunyatanira||
+
+### 10.
+Duk myarsa wau sang aji|maring sakèh aturira|pangulu lan ngulamane|sigra nimbali sang pata|tumênggung Wiraguna|ingkang tinuju lumaku|lan Ngabèi Wirajamba||
+
+### 11.
+Kalih wus sumiwèng ngarsi|aris pangandika nata|wruhanta sira karone|ingsun nampani turira|iki para ngulama|yèn mangke pasisir Kidul|ana santri saka wetan||
+
+### 12.
+Sèh Amongraga wêwangi|sabate mung kalih samya|karênan nguja sikire|dadya sinungsung ing janma|maèwu samya prapta|murang-tata solahipun|lali kamanungsanira||
+
+### 13.
+Sira karo ingsun-tuding|mulat ing kaananira|kang nèng pasisir dununge|kalamun nyata mangkana|panggiha Amongraga|karana pa kamipurun|mangrurah tataning sarak||
+
+### 14.
+Lamun datan angukiri|nglênggana ing dosanira|aywa tanggung sira age|rampungana ing kukumnya|linarung ing samodra|nèng bronjong ywa bisa mêtu|paripurnaning pidana||
+
+### 15.
+Lakunira sun-kanthèni|ngulama ing sawatara|manawa ana ujare|angrasa pamurung sarak|adunên wuwusira|lan ngulama ingkang mèlu|lakunira anèng paran||
+
+### 16.
+Têlas wijiling sabda ji|Ki Tumênggung Wiraguna|nêmbah sandika ature|kalilan mijil sadaya|lèngsèr saking ing ngarsa|Ki Tumênggung lan pangulu|sadaya sakanthinira||
+
+### 17.
+Sapraptanira ing jawi|nulya sanega ing lampah|samapta lan panêkare|mantrinira kawandasa|samya sikêp ing yuda|sadasa ngulamanipun|pinilih ngèntasi karya||
+
+### 18.
+Dupi wus samapta sami|Ki Tumênggung Wiraguna|anulya wau lampahe|mangidul sabalanira|datan winarnèng marga|samana dènnira rawuh|ing masjid agung rineka||
+
+### 19.
+Anuju suruping rawi|kapyarsa bêdhug tinatap|kadi têngara mahribe|dadya kèndêl lampahira|anèng jawi wiwara|pra ngulama ingkang laju|anglugas busananira||
+
+### 20.
+Mawor sakèhing kang janmi|salat anèng masjidira|sasêlingan ing lungguhe|lan sakèhe santri desa|mung ana sawatara|kang sami salat awaktu|anèng jroning masjidira||
+
+### 21.
+Watara mung kawandèsi|kang akèh nèng ara-ara|miwah masjid ing natare|jalu lawan wanita|tan ana subasita|samya undhung ganti tanduk|lir raryya lit suka-suka||
+
+### 22.
+Busana datan pinikir|satêngah wuda kang kathah|sarwa gêgombal jarike|Ki Tumênggung Wiraguna|lawan pra santrinira|kalangkung pangungunipun|mulat solahe kèh janma||
+
+### 23.
+Kadi tan katon pra-mantri|sakèh janma (n)dulurira|tan siwah patraping sato|mangkana sabubarira|ing wanci bakda Isa|Jamal Jamil kang kadulu|pra ngulama mijil samya||
+
+### 24.
+Ngumpul lawan para mantri|singit tan mulad sing jaba|mamrih waspada dulune|sasolah sagung janma|ingkang anèng jro sura|pandhapaning masjid agung|Jamal Jamil gya angatak||
+
+### 25.
+Kinèn mijilna kêndhuri|kumrubut janma lampahnya|malbèng jro masjid agunge|bali wus ngusung ambêngan|gotongan pira-pira|tumpêng janganan supênuh|wak-iwakan rupa-rupa||
+
+### 26.
+Kinêpung sagunging janmi|warata sami anadhah|jalu èstri apa dene|pikun miwah kang sih raryya|dinuman wus warata|nutug dènnira akêmbul|kadya pinasthi tèkira||
+
+### 27.
+Wawadhah binuwang sami|marang latar tanpa tata|anulya surut arame|Ki Tumênggung Wiraguna|miwah sakancanira|kalangkung ngunguning kalbu|umulat sasolahira||
+
+### 28.
+Tandya gumarubyug manjing|maring masjid uluk-salam|Jamal Jamil wangsulane|kang salam pandulunira|dahat ngunguning nala|anduga yèn ingkang rawuh|carakane Sri Narendra||
+
+### 29.
+Dadya lumayu umanjing|atur uninga bandara|marang Sèh Amongragane|kang anggung mupit kewala|samana ingaturan|kalamun ana priyagung|kang rawuh saka ing praja||
+
+### 30.
+Saksana dènnira mijil|marang surambi atata|ngancaran lênggah kabèhe|nor-raga ing patrapira|saryya tur manêmbrama|wong praja dupi andulu|wadananing Amongraga||
+
+### 31.
+Ing netya lir naraputi|mèh tan kawawa micara|Ki Tumênggung ing driyane|
+
+è
+
+### 31.
+ngêt lamun ta dinuta|dening (n)Jêng Sri Narendra|sanalika srênging kalbu|amêdharkên pangandika||
+
+### 32.
+Gya umênyat anèng ngarsi|arum manis wuwusira|hèh rêngên ta sira mangke|sabdane Sri Naranata|dhumawuh pêkênira|mangkana sang Amongluhung|andhodhok lan ngapurancang||
+
+### 33.
+Sarwi aturira aris|lah nêdha mugi dhawuhna|(n)Jêng Pamase ing sabdane|gya Tumênggung Wiraguna|andhawuhakên sabda|yèku andikaning prabu|salam mring sira tampa-a||Tur-nuwun Sèh Amongragi|kalingga murda kang salam|saking sabda (n)Jêng Pamase|anambung Ki Wiraguna|dhawuhakên sabda nata|mangkana dhawuhing prabu|maring pakênira nyata||
+
+### 35.
+Andangu paraning kapti|pakênira kumawawa|mangrurah tata-sarake|miwah kurang tatapraja|datan atur uninga|anèng ngriki adudunung|ngadêgakên masjidira||
+
+### 36.
+Karya pêsantrèn baribin|pangeram-eraming jana|kayuyun kabèh limute|kawasesa sikirira|tan ngrasa lamun janma|winêngku dening sang prabu|ilang rurukuning desa||
+
+### 37.
+Sang Nata arsa udani|paran èsthining tyasira|karya gêndra nagarane|apa baya datan wikan|jumênêngira Nata|Sultan Kalipatullahu|tuhu wakiling Pangeran||
+
+### 38.
+Amêngku kukuming bumi|warata jajahanira|wijang-wijang ing kukume|lah ta mara umatura|kang kêna sun-piyarsa|Wiraguna wangsul lungguh|mangkana Sèh Amongraga||
+
+### 39.
+Satata sila nèng ngarsi|ngapurancang lênggahira|sarwi tumungkul ature|dhuh Kyai atur kawula|datan adawa-dawa|sadaya sampun kadulu|andika pirsa priyangga||
+
+### 40.
+Labêting kawula alit|langkung cubluk balilunya|tan wikan anggêr-anggêre|tumanduk wus dadya dosa|marang ing angga-amba|ingkang atumpuk angundhung|awrate among wong kathah||
+
+### 41.
+Parandene ing samangkin|Kiyai badan-kawula|amung sumarah karsane|anglampahi kukum praja|tan mingsêt ing sarema|jumurung karsa sang Prabu|tumadhah ingkang pidana||
+
+### 42.
+Nulya angandika malih|Ki Tumênggung Wiraguna|punapa andika mangke|wus tan lênggana parentah|dhawuhira Narendra|kang manira êmban tuhu|nindaki kukuming praja||
+
+### 43.
+Mongraga aturira ris|tuhu tan ana kawawa|mring Nata malang karsane|aprasasat ambalak-a|dhawuhirèng Pangeran|sintên ta ingkang sumaguh|suminggah anggêring praja||
+
+### 44.
+Wiraguna nolih wuri|tanggap para mantrinira|ngajokake baronjonge|samana wus praptèng ngarsa|Tumênggung Wiraguna|lah ta andika lumêbu|dhawuh kukume Narendra||
+
+### 45.
+Tan sêgu sang Amongragi|nulya umanjing bronjongnya|mangkana pra santri kabèh|dupi umulat mangkana|gurune pinidana|bubar sadaya lumayu|salang-tunjang padha rowang||
+
+### 46.
+Jamal Jamil ingkang kari|arsa wikan wêkasannya|sru sêtya maring gurune|mangkana Ki Wiraguna|wus prentah mêpêtana|beronjongira tinutup|nulya ginotong saksana||
+
+### 47.
+Mangidul lampahe sami|maring pasisir samudra|ing Tunjungbang tinujune|lalampah dalu duk prapta|anèng têpi samudra|ing wancine gagad bangun|kang surya tinawêng ima||
+
+### 48.
+Tis-tis diwangkara kingkin|tidhêm sagunging dumadya|sirêp tan ana bawane|samodra lêrêp tan molah|kang tirta anglir-gêdhah|ngantariksa angêndhanu|sirêm-sirêming Hyang Arka||
+
+### 49.
+Ramyang-ramyang anyênêni|kadya jumurung sungkawa|kang arsa linarung mangke|sèlèh wau bronjongira|nèng gigisik asigra|asru muwus Ki Tumênggung|lah ing mêngko wêkasannya||
+
+### 50.
+Pidananing Narapati|tumanduk mring pêkênira|sandhangên lêgawèng tyase|bokmanawa pêkênira|bisa munggah suwarga|saking pambantuning Prabu|amunah druhakanira||
+
+### 51.
+Amongraga amangsuli|dhuh Kyai sampun sandeya|sampun kadhadha ing mangke|kathahing dosa-manira|anandhang kang pidana|kawêngku adiling ratu|dadya kamulyaning Suksma||
+
+### 52.
+Tan antara andhatêngi|robing alun sing samudra|kadya prabata inggile|manaut ing gisikira|bronjong katarik sigra|manêngah samudra silum|wus musna tan kawistara||
+
+### 53.
+Langkung gawok kang ningali|Ki Tumênggung Wiraguna|dadya ririh pangucape|lah sun-sêngguh iku baya|wus uliya sanyata|de lêgawa nandhang kukum|lir Pangran Panggung ing kuna||
+
+### 54.
+Lêgawa alêbu gêni|nanging tan bisa tumama|rahayu jro pawaka-ne|sinambi angarang sêt|Suluk Malang-sumirang|dene Mongraga puniku|mina katubing samudra||
+
+### 55.
+Tan antara kapiyarsi|uluk salam ngantariksa|dhuh salam-malaekume|Ki Tumênggung Wiraguna|gugup mangsuli sigra|wasalamu alaekum|mangkana ujaring swara||
+
+### 56.
+Dhuh Wiraguna Kiyai|aturna bêkti-kawula|maring (n)Jêng Sultan ing mangke|karsane Nata sadaya|wus sami kalaksanan|kasambadan karsaningsun|waluwa saking ing dunya||
+
+### 57.
+Eram sagung kang miyarsi|
+
+è
+
+### 57.
+smu atis ing wardaya|dadya wangsul age-age|katungka ing tibanira|bronjong kothong binuwang|maring kisma dening alun|tuhu wus gambuhing janma||
+
+### 636
+## Gambuh  1.
+
+### 636
+Mangkana kang cinatur|Jamal Jamil dènnira tutpungkur|sisingitan lampahira praptèng gisik|wikan sakèh kang tinutur|dupi mêsat ingkang bronjong||
+
+### 2.
+Kumêlap manahipun|ingkang bronjong mangidul ngalangut|nèng têlênging samudra datan kaèksi|gidhuh ing tyas tanpa sêgu|wong ro anggung dhêlog-dhêlog||
+
+### 3.
+Dupi caraka mungkur|pagisikan asêpi asamun|mung swaraning tirta samudra kumrisik|miwah ngin-angin krumusuk|tan ana sabawaning wong||
+
+### 4.
+Jamal Jamil ing kalbu|jrih wangsula mring masjiding dangu|ciptanira arsa sung wikan Ki Bayi|Panurta lan garwanipun|Ni Tambangraras sang sinom||Sigra dènnya lumaku|nasak wana mangaler wus laju|sisiliban anut palunguran ardi|datan anurut marga gung|wus anjog desa Badhoyo||
+
+24 ( Jamal Jamil nyumêrêpi sadaya lêlampahan) Jamal Jamil nyumêrêpi sadaya lêlampahan wau jalaran sami ngumpêt pêrlu badhe nyumêrêpi babaring lêlampahan. Sasampunipun cêtha kadi kasbut ing nginggil, lajêng sami lumajar tumuju Wanamarta. Sadhatêngipun Jamal Jamil Kyai Bayi Panurta lajêng nimbali para putra putrinipun. Sadaya sami mirêngakên cariyosipun Jamal Jamil wiwitan dumugi wêkasan. Sanalika Nikèn Tambangraras kantu dados bayangan. Jamal Jamil botên purun kacandhêt, wangsul dhatêng tanah asalipun ing Karang tanah Bantên. Kaca 226 – 228 636 Gambuh 6.
+
+### 4.
+Mangetan lampahipun|anaratas Kidang-layang gunung|tanpa lèrèh ing siyang ratri lumaris|datan kawarna ing ngênu|Wanamarta krajan anjog||
+
+### 7.
+Sapasar lampahipun|dupi panggih (n)Jêng Kiyainipun|Kyai Bayi Panurta anuju linggih|kalawan rubiyahipun|anèng paningrat amanggon||
+
+### 8.
+Ing wanci bakda Luhur|praptanira Jamal Jamil gupuh|santri Luci ingkang angirit mring wuri|kagyat (n)Jêng Kiyai (n)dangu|sumêdhot raosing batos||
+
+### 9.
+Jamal Jamil agupuh|asadhêpêg lênggahirèng ngayun|parêmbèyan umatur pan sarwi tangis|magêp-magêp wuwusipun|tan cêtha tansah (ng)galolo||
+
+### 10.
+Ki Bayi aris muwus|lah sarèhna kariyin ywa tutur|tan tetela mundhak angrêrantan ati|nangisa dèn-kongsi tutug|tutura dipun-cumêplong||
+
+### 11.
+Ki Bayi sigra nuduh|animbali para kadangipun|putra jalu kalawan ingkang pawèstri|sadaya wus prapta gupuh|nèng ngarsa sarwi cumadhong||
+
+### 12.
+(n)Jêng Kyai ngandika rum|lah ta kabèh rêngênta ing tutur|lamun iki Jamal Jamil lagya prapti|dènnira nis atut pungkur|marang Ki Sèh angaloyong||
+
+### 13.
+Durung kongsi atutur|ing pawarta sadaya maring-sun|de-kasaru tangisira andarwili|tan cêtha ing wuwusipun|sun-atag dimèn akatog||
+
+### 14.
+Ing mêngko baya uwus|tangisira tutura sirèku|Jamal Jamil anêmbah anuli angling|dhuh Ki Bayi amba matur|kawula umiring manggon||
+
+### 15.
+Nèng Mataram jinujug|Ardi-kidul ing Sêmanu dhusun|putrandika dadya panguyuning janmi|angadêgên masjid agung|gangsal plênèng dènnya mandhok||
+
+### 16.
+Anulya tampi bêndu|ing (n)Jêng Gusti anduta tinuduh|anyêpênga putrandika wus lumirig|winot baronjong linarung|nèng Tunjungbang samudra rob||
+
+### 17.
+Wus sirna anèng ranu|putrandika tan wangsul kadulu|wangsulira kang duta maring nagari|kawula kalih alaju|mariki arsa tur wartos||
+
+### 18.
+Samana kang rumungu|ing pawartos wau sirnanipun|Seh Mongraga linarung têlênging tasik|sadaya mawêtu êluh|Tambangraras andarodos||
+
+### 19.
+Sadaya tanpa muwus|lêg ing driya rinasa kadaut|sru sungkawa ing nala anggung matistis|lir sinambêr gêlap luput|tinêbak tuna dening mong||
+
+### 20.
+Antara dangunipun|Kyai Bayi nulya ngandika rum|lah ta uwis datan kadawa pinikir|ing wuri bae rinêmbug|sumarah karsaning Manon||
+
+### 21.
+Mungguh ing titah tuhu|datan bisa suminggah ing tamtu|papasthèning Hyang ingkang kinanthèkna nguni|tinulis ing Lohkil-makpul|mung sadarma solahing wong||
+
+### 22.
+Pra kadang miwah sunu|tan ana ngling sadaya tumungkul|datan bisa ing wuwus yèn angluwihi|nanging sru wêlasing kalbu|maring putra kadang wadon||
+
+### 23.
+Kadaut rasanipun|têpa-têpa rasanirèng kalbu|mungguh èstri ingkang nêdhênge papasih|lan lakine dadya guru|kang wus sinêtyaning batos||
+
+### 24.
+Ing mêngko dadak pugud|kang sinêtyan tan ana kadulu|dadya wau sagung ingkang amiyarsi|mung Nikèn paraning kalbu|sru wêlas rasaning batos||
+
+### 25.
+Lir murcatma satuhu|Tambangraras tan kêna amuwus|pêt kasaput kapêtêking nala atis|anggêblag dènnira lungguh|tan èngêt maring kang katon||
+
+### 26.
+Sakala dadya kantu|Ni Malarsih ingkang cakêt lungguh|langkung gugup sadaya gita nyakêti|sinotyan wadananipun|dangu datan bisa anon||
+
+### 27.
+Pinêtik karnanipun|ingkang kering dening ingkang ibu|dangu-dangu èngêt nulya angalilir|aririh ngucap tangawut|angudubilah saeton||
+
+### 28.
+Wus kinèn ngunjuk ranu|radi lêrêm ing panggalihipun|gya ingatêr kondur ring rama ring panti|mangetan ing wismanipun|para tuwa gung ngaroyom||
+
+### 29.
+Ni Daya Sumbaling ku|kang wawarah sakèhing pangrapu|winursita Kae Bayi lan pra ari|miwah kalih ingkang sunu|kang anggung mangun wiraos||
+
+### 30.
+Mring putranira wadu|dènnya mamrih utamaning laku|para ari tansah anglipur panggalih|dhuh Kiyai kang saèstu|mênggah ingkang putra wadon||
+
+### 31.
+Tan ceda warnanipun|lan utama ngalim maring ngèlmu|datan kurang ing wuri kang angajêngi|anganti lêrêming kalbu|putrandika kang sayêktos||
+
+### 32.
+Jamal Jamil sumambung|dhuh Kiyai kalilana ulun|arsa pamit wangsul maring Karang nagri|ing ngriki datan sakantuk|sanès asal-amba yêktos||
+
+### 33.
+Kiyai ngandika rum|lamun kêna rika ywa kasusu|mentar saking Wanamarta dipun aring|nging Jamal Jamil andarung|kumêdah anuli bodhol||
+
+### 34.
+Ki Bayi dadya asung|sarananing lampah mangka sangu|kalihdasa sêmat kang salaka putih|wus tinampan kalihipun|gya pamit anuli bodhol||
+
+### 35.
+Datan kawarnèng ngênu|Jamal Jamil mangkya lampahipun|Wanamarta ingkang gung nahên rudatin|nahên ta ingkang winuwus|ingkang amucung lalakon||
+
+### 637
+## Pocung  1.
+
+### 637
+Kang cinatur carakanira sang Prabu|ing nagri Mataram|pinrih mariksa ngukumi|solahira kang aran Sèh Amongraga||
+
+25 ( Tumênggung Wiraguna ngaturakên sarèhing dinuta) Ing Kraton Mataram Tumênggung Wiraguna ngaturakên sarèhing dinuta. Sèh Amongraga sampun kasampurnakakên. Kraton Mataram tata-titi-têntrêm.
+
+### 637
+Ardi-kidul|kukuwu desa Sêmanu|dadya pangulunan|sakèh wong urut pasisir|mulang-sarak ilang pranataning janma||
+
+### 3.
+Ki Tumênggung|Wiraguna kang tinuduh|lawan Wirajamba|mangka kondhanging tinuding|sapanêkar mantrinira kawandasa||
+
+### 4.
+Kanthinipun|ngulama sadasa sampun|prapta ing dunungnya|Amongraga lan pra santri|nèng Sêmanu masjide gung Kanigara||
+
+### 5.
+Wus kapikut|Amongraga dadya anut|binronjong saksana|binêkta marang ing gisik|nèng Tunjungbang linarung marang samodra||
+
+### 6.
+Wus sinaut|ing alun sagara kidul|sirna nèng samodra|kari bronjong nulya bali|tibèng gisik undure sagunging duta||
+
+### 7.
+Lampahipun|samarga-marga cinatur|pangunguning driya|sirnane Sèh Amongragi|nèng sagara nyabawa datanpa rupa||
+
+### 8.
+Baya iku|tetela wus mulya tuhu|manjing waliolah|sarira Suksma tan kèksi|wus tinêkan gagayuhaning ngulama||
+
+### 9.
+Para kaum|ngulama kang samyandulu|kaanan mangkana|ketang lamlaming kang ati|mung Tumênggung Wiraguna tanpa ngrasa||
+
+### 10.
+Sigra laju lampahira tan cinatur|praptaning Mataram|marêngi suruping rawi|samya mulih sadaya asosowangan||
+
+### 11.
+Enjingipun|wangsul angumpul sadarum|anèng pagêlaran|marêngi Nata tinangkil|tinimbalan sadaya mring ngarsa Nata||
+
+### 12.
+Praptèng ngayun|sang Nata nulya andangu|paripurnanira|dènnira samya tinuding|Ki Tumênggung Wiraguna awot-sêkar||
+
+### 13.
+Dadya matur|sasolahira tinuduh|wiwitan wêkasan|sadaya katur sang Aji|langkung ngungun sadaya ingkang miyarsa||
+
+### 14.
+Mung sang Prabu|ingkang mèsêm jroning kalbu|aris andikanya|marang kang samya sumiwi|wruhanira yèn ingsun tan ngukumana||
+
+### 15.
+Kang kadyèku|awit ana aturipun|gugating ngulama|ngrasa cinamah ing janmi|murang sarak agama ingkang minulya||
+
+### 16.
+Jatinipun|Amongraga kang satuhu|marma nèng Mataram|ngubalakên ngèlmu sikir|mèt dhadhakan sampurnaning raganira||
+
+### 17.
+Amung ratu|kang wênang nampurna iku|tutuging kasêdya|ingsun amung anuruti|pamintane kang wus dadi lakunira||
+
+### 18.
+Iya iku|laku kang manggon satuhu|wêkasaning janma|ingkang wus (ng)gayuh utami|nora dosa dudu kukuming nagara||
+
+### 19.
+Marmanipun|Amongraga duking dangu|sasirnaning raga|kabuncang sajroning warih|angalela sarira-Sukma nyabawa||
+
+### 20.
+Darbe atur|marang panjênênganingsun|ngaturakên salam|tanapi narima yêkti|de sanyata kasêmbadaning parasdya||
+
+### 21.
+Kang rumungu dhawuhira sang Aprabu|wimbuh sukarêna|pangungunira tan sipi|wus kalilan undure para caraka||
+
+### 22.
+Tan adangu jêngkarira sang Aprabu|kang niwa bubaran|gung alit samya umulih|sowang-sowang maring wismane priyangga||
+
+### 23.
+Tan winuwus|malih nagri ing Matarum|jênêngira Nata|(n)Jêng Sultan Nyakramartani|tata têntrêm kanthi sêmbadaning karsa||
